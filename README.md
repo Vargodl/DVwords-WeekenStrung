@@ -1,6 +1,27 @@
 # DVwords-WeekenStrung
 
-Saturday, March 25  First free day
+
+Sunday, March 26
+
+Optimists look for the luck in the opportunity
+I have been lucky because that is how I've wanted to be
+
+Innominal Patriotism is Filling and Spiritually Sanctifying
+
+Bless us alone with Theseus’ gifts
+and
+Gift us, this day, our daily
+bread
+Upon which man doth not alone
+live
+
+
+‘If it is peace you want, seek to change yourself, not other people. It is easier to protect your feet with slippers than to carpet the whole of the earth.’”​ — Anthony de Mello​
+
+
+
+Saturday, March 25  
+First free day
 So it begins--happy daze!
 
 here is a link to one of the most beautiful songs i know: https://youtu.be/q5FUyjAONB8

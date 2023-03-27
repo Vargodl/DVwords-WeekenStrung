@@ -1,6 +1,23 @@
 # DVwords-WeekenStrung
 
 
+Monday, March 27
+
+There is a best (at least in an Anselmian sense). My goal…the beginning of my morning ‘praymeditation’ is to ‘be better for the best!’
+
+Mom101: Today would have been my mother’s 101st birthday.  Happy birthday, Alycce!
+
+The pandemic ended up being an ~ 3 year transition into retirement for me. The whole of 2023 will be, in many ways, the transition into retirement. Had the pandemic not happened, I would have (and could have) retired much earlier. But, working from home, it was convenient to work, AND my wonderful wife made sure I was fed, watered and following safe Covid practices. Overall, especially the last almost 2 years, although I would have preferred no pandemic and although the precautions and isolation were not insignificantly inconvenient, the pandemic period had upsides—regular (and enhanced) reading and swimming, f’r’instance.
+It is interesting how some friendships seem to have paused during the pandemic and some have frayed. 
+
+Philosophically and absolutely I non-despondently ponder if there is even the possibility of nothing?
+
+
+You can't cross the sea merely by standing and staring at the water.
+—Tagore
+
+
+
 Sunday, March 26
 
 Optimists look for the luck in the opportunity

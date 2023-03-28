@@ -6,8 +6,8 @@ A day without James Joyce, who ’turned his mind to unknown arts,’ is a day w
 
 F'r'instance, Deshil Commodius Eamus which could, i suppose mean 'The Shield of Commonwealth Amuses.'
 
-Our Commonwealth house is a very very very fine house with…
-…a bonded feral Siamese rescue pair--but, as has been previously opined and even bumper stuck, who rescued whom?
+Our Commonwealth house (Castillo Vargo) is a very very very fine house with…two cats...
+…a bonded feral Siamese rescue pair  [But, as has been previously opined and even bumper stuck, who rescued whom?]
 
 ![image](https://user-images.githubusercontent.com/128755897/228281166-b3659141-b564-4c91-b5ef-d38793bb1ba3.png)
 

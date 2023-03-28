@@ -7,9 +7,6 @@ A day without James Joyce, who ’turned his mind to unknown arts,’ is a day w
 Deshil Holles Eamus
 The Shield of Commonwealth earmouse
 
-A Wilde Paradoxic: Experience is the name everyone gives to their mistakes.
-
-
 Our Commonwealth house is a very very very fine house with…
 …a bonded feral Siamese pair 
 
@@ -22,6 +19,9 @@ Being a happily married James Joyce fan, WE call them Leopold and Livia.
 I plan to call my next pet “Peeves” so I can introduce my friends to ‘my pet, “Peeves”!’  Peeves will probably be a turtle, or a unwanted mouse…Slow, dirty, infectious.  Of course, cats can be fairly peevishly self-possessed, too.
 
 Some of my favourite (andfirst) Joycean onomatopea, from A Portrait: "What did that mean, to kiss? You put your face up like that to say goodnight and then his mother put her face down. That was to kiss. His mother put her lips on his cheek; her lips were soft and they wetted his cheek; and they made a tiny little noise: kiss. Why did people do that with their two faces?"
+
+
+A Wilde Paradoxic: Experience is the name everyone gives to their mistakes.
 
 
 Monday, March 27

@@ -2,24 +2,22 @@
 
 28 March
 
-A day without James Joyce, who ’turned his mind to unknown arts,’ is a day without insightful expansion. 
+A day without James Joyce, who ’turned his mind to unknown arts,’ is a day without insightful creative thought. 
 
-Deshil Commodius Eamus
-
-The Shield of Commonwealth Amuses
+F'r'instance, Deshil Commodius Eamus which could, i suppose mean 'The Shield of Commonwealth Amuses.'
 
 Our Commonwealth house is a very very very fine house with…
-…a bonded feral Siamese pair 
+…a bonded feral Siamese rescue pai--but as has been previously opined and even bumper stuck, who rescued whom?
 
 ![image](https://user-images.githubusercontent.com/128755897/228281166-b3659141-b564-4c91-b5ef-d38793bb1ba3.png)
 
 Being a James Joyce fan, I was planning to call them James and Joyce
 
-Being a happily married James Joyce fan, WE call them Leopold and Livia.
+Being a happily married James Joyce fan, WE call them Leopold and Livia (Leo and Livie).
 
-I plan to call my next pet “Peeves” so I can introduce my friends to ‘my pet, “Peeves”!’  Peeves will probably be a turtle, or a unwanted mouse…Slow, dirty, infectious.  Of course, cats can be fairly peevishly self-possessed, too.
+I am going to call my next pet “Peeves” so I can introduce my friends to ‘my pet peeves.’  Peeves will probably be a turtle, or a unwanted mouse…Slow, dirty, infectious.  Of course, cats can be fairly peevishly self-possessed, too.
 
-Some of my favourite early Joyce (and first onomatopoeia of 'kiss'), from A Portrait: "What did that mean, to kiss? You put your face up like that to say goodnight and then his mother put her face down. That was to kiss. His mother put her lips on his cheek; her lips were soft and they wetted his cheek; and they made a tiny little noise: kiss. Why did people do that with their two faces?"
+Some of my favourite early Joyce (and first onomatopoeia of 'kiss'), is from A Portrait: "What did that mean, to kiss? You put your face up like that to say goodnight and then his mother put her face down. That was to kiss. His mother put her lips on his cheek; her lips were soft and they wetted his cheek; and they made a tiny little noise: kiss. Why did people do that with their two faces?"
 
 
 A Wilde Paradoxic: Experience is the name everyone gives to their mistakes.

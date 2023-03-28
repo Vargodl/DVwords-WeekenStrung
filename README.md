@@ -1,5 +1,26 @@
 # DVwords-WeekenStrung
 
+28 March
+
+A day without James Joyce, who ’turned his mind to unknown arts,’ is a day without insightful expansion. 
+
+Deshil Holles Eamus
+The Shield of Commonwealth earmouse
+
+A Wilde Paradoxic: Experience is the name everyone gives to their mistakes.
+
+
+Our Commonwealth house is a very very very fine house with…
+…a bonded feral Siamese pair 
+
+Being a James Joyce fan, I was planning to call them James and Joyce
+
+Being a happily married James Joyce fan, WE call them Leopold and Livia.
+
+I plan to call my next pet “Peeves” so I can introduce my friends to ‘my pet, “Peeves”!’  Peeves will probably be a turtle, or a unwanted mouse…Slow, dirty, infectious.  Of course, cats can be fairly peevishly self-possessed, too.
+
+
+
 
 Monday, March 27
 

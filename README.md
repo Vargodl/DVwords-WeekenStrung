@@ -6,7 +6,7 @@ A day without James Joyce, who ’turned his mind to unknown arts,’ is a day w
 
 Deshil Commodius Eamus
 
-The Shield of Commonwealth earmouse
+The Shield of Commonwealth Amuses
 
 Our Commonwealth house is a very very very fine house with…
 …a bonded feral Siamese pair 

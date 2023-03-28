@@ -13,12 +13,15 @@ A Wilde Paradoxic: Experience is the name everyone gives to their mistakes.
 Our Commonwealth house is a very very very fine house with…
 …a bonded feral Siamese pair 
 
+![image](https://user-images.githubusercontent.com/128755897/228281166-b3659141-b564-4c91-b5ef-d38793bb1ba3.png)
+
 Being a James Joyce fan, I was planning to call them James and Joyce
 
 Being a happily married James Joyce fan, WE call them Leopold and Livia.
 
 I plan to call my next pet “Peeves” so I can introduce my friends to ‘my pet, “Peeves”!’  Peeves will probably be a turtle, or a unwanted mouse…Slow, dirty, infectious.  Of course, cats can be fairly peevishly self-possessed, too.
 
+![image](https://user-images.githubusercontent.com/128755897/228281284-d8f1da05-7be8-42e5-9d54-b11453b59756.png)
 
 
 

@@ -1,5 +1,21 @@
 # DVwords-WeekenStrung
 
+29 March
+
+streaming with https://www.twitch.tv/vargolads this evening (and most Wednesday evenings) at 6 PM.
+
+More of 'the similar other act' of JJ's APOTA (James Joyce's A Portrait Of The Artist).  The other end/act compared to Kiss of yesterday being "Suck".
+
+  "Suck was a queer word. The fellow called Simon Moonan that name because Simon Moonan used to tie the prefect's false sleeves behind his back and the prefect used to let on to be angry. But the sound was ugly. Once he had washed his hands in the lavatory of the Wicklow Hotel and his father pulled the stopper up by the chain after and the dirty water went down through the hole in the basin. And when it had all gone down slowly the hole in the basin had made a sound like that: suck. Only louder.
+
+  To remember that and the white look of the lavatory made him feel cold and then hot. There were two cocks that you turned and water came out: cold and hot. He felt cold and then a little hot: and he could see the names printed on the cocks. That was a very queer thing."
+
+...and, clanging on 'suck,' the following quote on Suck sess:
+
+Success is the sum of small efforts, repeated day in and day out.
+Robert Collier
+
+
 28 March
 
 A day without James Joyce, who ’turned his mind to unknown arts,’ is a day without insightful creative thought. 
@@ -21,6 +37,7 @@ Some of my favourite early Joyce (and first onomatopoeia of 'kiss'), is from A P
 
 
 A Wilde Paradoxic: Experience is the name everyone gives to their mistakes.
+
 
 
 Monday, March 27

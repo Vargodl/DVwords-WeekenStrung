@@ -1,4 +1,46 @@
-# DVwords-WeekenStrung
+# DVwords-WeekenStrung©
+please note all of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.
+
+30 March
+
+"Expect surprises!"  an optimistic oxymoronicum.
+
+BREAKING somewhat interesting national news bits from this pm:
+1.) Donny Trump indicted in NY.
+2.) The main GOOPette found not guilty for skiing accident in Utah.
+
+
+...continuing clangingly on the last two onomatapoeiae of kiss and suck:
+
+Lips and anus as extrusions/extensions/extremes of the alimentary canal in humans. Do other animals have similar or do only humans have protruded lips?  like the anus, the lips seem like they are the ends of the alimentary canal which pucker externally.   Animals greet with their noses and tongues but dont 'kiss'.  ...and human kissing is generally an intimate activity.
+
+Many years ago (probably 50, give or take), I drew a self-portrait with puckered lips, remarking the similarity to the anus (maybe it's just me?).  I'll see if i can find that drawing and enter it in a later posting.
+
+A further irony/paradox is that animals (including humans) are tubes within tubes—really ‘outside in’ via the alimentary canal… lips connect anus with a tract (GI) which takes in food and water, extracts what the body needs, excreting the rest/waste.  Food from the outside stays outside the body (in the GI tract as it passes through the body). What passes through the GI tract never ‘enters’ the body. 
+
+Burps, borborygmi and flati are manifestations of the gaseous passengers of the GI tract.
+
+Farts (flati,flatulence) are the funniest though potentially most disconcerting of the three.  Butt they certainly are funny and the stuff of (mostly lowbrow) literature.  Salvador Dali wrote an essay on maiden or virgin farts.  An uncontrolled irregular semi-survey by me suggests that men fart more and louder than do women.  Men BRAAPPP, women 'pert' or 'pweet,' sometimes without even realizing it.
+
+Farts are funny
+Farts are fun
+Percolating softly 
+or rumbling on
+  [by me, DV]
+
+
+“Because of a very long fart, really a very long and, let us be frank, melodious fart, that I produced when I woke up, I was reminded of Michel de Montaigne. This author reports that Saint Augustine was a famous farter who succeeded in playing entire scores.”
+
+Excerpt from Diary of a Genius by Salvador Dali
+
+![image](https://user-images.githubusercontent.com/128755897/228987964-1229e64a-0f7f-49c1-84d3-3ff44279484f.jpeg)
+"Jar of Farts" From Dali's illustration based on the novel; "The Horrible and Terrifying Deeds and Words of the Renowned Pantagruel, King of the Dipsodes” by François Rabelais.
+
+...and JamesJoyce wrote privately to Nora about her gaseous expressions:
+“You had an arse full of farts that night, darling, and I fucked them out of you, big fat fellows, long windy ones, quick little merry cracks and a lot of tiny little naughty farties ending in a long gush from your hole. It is wonderful to fuck a farting woman when every fuck drives one out of her. I think I would know Nora’s fart anywhere. I think I could pick hers out in a roomful of farting women. It is a rather girlish noise not like the wet windy fart which I imagine fat wives have. It is sudden and dry and dirty like what a bold girl would let off in fun in a school dormitory at night.”
+
+Torque is twisting motion, which is measured in pound-feet. In another n of 1 uncontrolled experiment, I estimate that when farts are torqued into solids (poo-poo, aka shite), the solid excrement also has a pound-foot measure but in this case one shit-foot weighs about a pound.  The amazing wonders of science!!!
+
 
 29 March
 

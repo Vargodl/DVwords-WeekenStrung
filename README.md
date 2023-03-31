@@ -3,16 +3,20 @@ please note all of these entries which aren't prior art are copyrighted © by me
 
 30 March
 
+
 "Expect surprises!"  an optimistic oxymoronicum.
 
+
 BREAKING somewhat interesting national news bits from this pm:
+
 1.) Donny Trump indicted in NY.
+
 2.) The main GOOPette found not guilty for skiing accident in Utah.
 
 
 ...continuing clangingly on the last two onomatapoeiae of kiss and suck:
 
-Lips and anus as extrusions/extensions/extremes of the alimentary canal in humans. Do other animals have similar or do only humans have protruded lips?  like the anus, the lips seem like they are the ends of the alimentary canal which pucker externally.   Animals greet with their noses and tongues but dont 'kiss'.  ...and human kissing is generally an intimate activity.
+Lips and anus as extrusions/extensions/extremes of the alimentary canal in humans. Do other animals have or do only humans have protruded lips?  like the anus, the lips are the ends of the alimentary canal which pucker externally.   Animals greet with their noses and tongues but dont 'kiss'.  ...and human kissing is generally an intimate activity.
 
 Many years ago (probably 50, give or take), I drew a self-portrait with puckered lips, remarking the similarity to the anus (maybe it's just me?).  I'll see if i can find that drawing and enter it in a later posting.
 

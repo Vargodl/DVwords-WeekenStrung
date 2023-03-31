@@ -23,9 +23,13 @@ Burps, borborygmi and flati are manifestations of the gaseous passengers of the 
 Farts (flati,flatulence) are the funniest though potentially most disconcerting of the three.  Butt they certainly are funny and the stuff of (mostly lowbrow) literature.  Salvador Dali wrote an essay on maiden or virgin farts.  An uncontrolled irregular semi-survey by me suggests that men fart more and louder than do women.  Men BRAAPPP, women 'pert' or 'pweet,' sometimes without even realizing it.
 
 Farts are funny
+
 Farts are fun
+
 Percolating softly 
+
 or rumbling on
+
   [by me, DV]
 
 
@@ -34,12 +38,13 @@ or rumbling on
 Excerpt from Diary of a Genius by Salvador Dali
 
 ![image](https://user-images.githubusercontent.com/128755897/228987964-1229e64a-0f7f-49c1-84d3-3ff44279484f.jpeg)
+
 "Jar of Farts" From Dali's illustration based on the novel; "The Horrible and Terrifying Deeds and Words of the Renowned Pantagruel, King of the Dipsodes” by François Rabelais.
 
-...and JamesJoyce wrote privately to Nora about her gaseous expressions:
+...and James Joyce wrote privately to Nora about her gas:
 “You had an arse full of farts that night, darling, and I fucked them out of you, big fat fellows, long windy ones, quick little merry cracks and a lot of tiny little naughty farties ending in a long gush from your hole. It is wonderful to fuck a farting woman when every fuck drives one out of her. I think I would know Nora’s fart anywhere. I think I could pick hers out in a roomful of farting women. It is a rather girlish noise not like the wet windy fart which I imagine fat wives have. It is sudden and dry and dirty like what a bold girl would let off in fun in a school dormitory at night.”
 
-Torque is twisting motion, which is measured in pound-feet. In another n of 1 uncontrolled experiment, I estimate that when farts are torqued into solids (poo-poo, aka shite), the solid excrement also has a pound-foot measure but in this case one shit-foot weighs about a pound.  The amazing wonders of science!!!
+Torque is energy in a twisting motion, which is measured in pound-feet. In another 'n of 1' uncontrolled approximation, I estimate that when farts are torqued into solids (gas is turned into poo-poo, aka shite), the solid excrement also has a pound-foot measure but in this case one shit-foot weighs about one poun avoirdupoisd.  Isn't science amazing?!!!
 
 
 29 March

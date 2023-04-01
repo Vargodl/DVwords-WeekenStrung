@@ -5,7 +5,7 @@ please note all of these entries which aren't prior art are copyrighted © by me
 
 I began yesterday with "Expect surprises!" because I like the implied conflict of expecting the unexpected. 
 
-Tomorrow is what many consider April Fools Day but, taking off on the surprise theme, I'd like to advise expect enchantments--positive surprises!
+Tomorrow is what many consider April Fools Day but, taking off on the surprise theme, I'd like to advise everyone to expect enchantments--positive surprises!
 
 30 March
 

@@ -1,6 +1,24 @@
 # DVwords-WeekenStrung©
 please note all of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.
 
+1 April--April Enchantment (instead of Fools) Day
+
+A wonderful surprise for my fantastic wife. 
+
+Dinner with dear friends Pauline, Louie, Kevin, Abdu, Joanne, Jess, Rich, Stephanie, Stuart as well as Win (who was instrumental in planning and arranging) at Emilio's Balotto in NYC. 
+
+As Scott Galloway says, Life is so rich!
+
+And...as has been increasingly stated, close friends are very important to health and longevity. 
+
+We are blessed with wonderful friends. 
+
+...And, I dearly love my wife. I surprised her today for the wonderful person she is and the important 10 year milestones she has crossed. She similarly surprised me a week ago with a surprise retirement dinner--an ouroboros of surprises. Like "The Gift of the Magi"
+by O. Henry. 
+
+Life is so Rich!!!
+
+
 31 March
 
 I began yesterday with "Expect surprises!" because I like the implied conflict of expecting the unexpected. 

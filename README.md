@@ -1,6 +1,13 @@
 # DVwords-WeekenStrung©
 please note all of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.
 
+April 3rd
+
+I just started a new, separate thread holding thep ictures from Margie's party, which you can goto if you select the "Vargodl" at the topleftof this page.
+
+Today was a 'returning to our "new" reality--home with an increasing sense of technological home security.  Margie may have mentioned that we had 'bigfoot' apparently come to visit us (aka case the joint) a couple of weeks ago.
+ 
+
 2 April
 
 Recently back from NYC and a quick but very pleasant and (if I might say so) very successful surprise weekend for Margie. I am so very grateful for all who came to the city to share. It was inconvenient for everyone but I think everyone had a great time and would do it again. I am so especially grateful to Winston for helping to make it happen. 

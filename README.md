@@ -1,6 +1,12 @@
 # DVwords-WeekenStrung©
 please note all of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.
 
+2 April
+
+Recently back from NYC and a quick but very pleasant and (if I might say so) very successful surprise weekend for Margie. I am so very grateful for all who came to the city to share. It was inconvenient for everyone but I think everyone had a great time and would do it again. I am so especially grateful to Winston for helping to make it happen. 
+
+Margie and I love each other very much and made the new vow to "never not" love each other.
+
 1 April--April Enchantment (instead of Fools) Day
 
 A wonderful surprise for my fantastic wife. 

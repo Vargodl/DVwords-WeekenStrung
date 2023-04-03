@@ -78,7 +78,7 @@ Excerpt from Diary of a Genius by Salvador Dali
 ...and James Joyce wrote privately to Nora about her gas:
 “You had an arse full of farts that night, darling, and I fucked them out of you, big fat fellows, long windy ones, quick little merry cracks and a lot of tiny little naughty farties ending in a long gush from your hole. It is wonderful to fuck a farting woman when every fuck drives one out of her. I think I would know Nora’s fart anywhere. I think I could pick hers out in a roomful of farting women. It is a rather girlish noise not like the wet windy fart which I imagine fat wives have. It is sudden and dry and dirty like what a bold girl would let off in fun in a school dormitory at night.”
 
-Torque is energy in a twisting motion, which is measured in pound-feet. In another 'n of 1' uncontrolled approximation, I estimate that when farts are torqued into solids (gas is turned into poo-poo, aka shite), the solid excrement also has a pound-foot measure but in this case one shit-foot weighs about one poun avoirdupoisd.  Isn't science amazing?!!!
+Torque is energy in a twisting motion, which is measured in pound-feet. In another 'n of 1' uncontrolled approximation, I estimate that when farts are torqued into solids (gas is turned into poo-poo, aka shite), the solid excrement also has a pound-foot measure but in this case one shit-foot weighs about one pound avoirdupoisd.  Isn't science amazing?!!!
 
 
 29 March

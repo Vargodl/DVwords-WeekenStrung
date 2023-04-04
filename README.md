@@ -1,6 +1,12 @@
 # DVwords-WeekenStrung©
 please note all of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.
 
+April 4
+
+I'm bummed because I just finished a brilliant entry on fatherhood, jewishness, passover and standing up to jewish hate and somehow it disappeared and i dont have the time to craft it again.  Stay tuned for tomorrow.
+
+Darn!
+
 April 3rd
 
 I just started a new, separate thread holding the pictures from Margie's party, which you can goto if you select the "Vargodl" at the top left of this page.

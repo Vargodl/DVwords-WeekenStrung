@@ -3,10 +3,15 @@ please note all of these entries which aren't prior art are copyrighted © by me
 
 April 3rd
 
-I just started a new, separate thread holding thep ictures from Margie's party, which you can goto if you select the "Vargodl" at the topleftof this page.
+I just started a new, separate thread holding the pictures from Margie's party, which you can goto if you select the "Vargodl" at the top left of this page.
 
-Today was a 'returning to our "new" reality--home with an increasing sense of technological home security.  Margie may have mentioned that we had 'bigfoot' apparently come to visit us (aka case the joint) a couple of weeks ago.
- 
+Today was a further 'returning to our "new" reality--home with an increasing sense of technological home security.  Margie may have mentioned that we had 'bigfoot' apparently come to visit us (aka case the joint) a couple of weeks ago. courtesy of snowfall, we saw his yeti tracks and became concerned about security--we have many windows (although new, secure and casement) and doors which are protective, but wont keep out someone with the need to enter.
+
+Over the past weeks since biggie oggled, we've significantly upgraded our security--now with motion detectors, lights, videocameras, sirens as well as central monitoring (re-initiated) and non-denomininational space lasers which remotely inject Bill Gates' most uptodate-but excruciatingly painful, GPS tracking chips into the buttocks (and, in fact, the bollocks, if they are present) of unwanted uninvited visitors.
+
+Security is important especially as we occasionally leave our kitties over night though we have the capability to see them on the little remote screen now.
+
+We are very fortunate to have some nice stuff and live in one of the safest places around Boston.  Nonetheless, "some nice stuff" sometimes attracts the riff and the raff.  But we don't want to be owned by our possessions.
 
 2 April
 

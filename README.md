@@ -9,14 +9,13 @@ I had no real experience with Jews growing up except the inappropriate and wrong
 
 I have certainly matured in this respect at least.  I went to Brandeis University, Almost married a Jewish Brandeisienne and have many very close Jewish friends.  
 
-In addition, as I have moved to various places, I have probably belonged to 4-5 Jewish Community Centers, primarily to swim in the pool.  This includes my current membership at the JCC of greater Newton), where I probably swim6times a week.  We do wear swim caps like in Woody Allen movies.  Of interest, my current JCC has a lot of really old, crumpled, hunched members so, even though I recently retired, I still feel young in that crowd.  
-
-Sadly, in the last year and a half of membership, the JCC has had at least 2 bomb threats…which is unfortunate, frightening and representative of the increasing anti-semitism in most parts of the world, including the USA.
+In addition, as I have moved to various places, I have probably belonged to 4-5 Jewish Community Centers, primarily to swim in their pools.  This includes my current membership at the JCC of greater Boston (Newton), where I probably swim 6 times a week.  We do wear swim caps like in Woody Allen movies.  Of interest, my current JCC has a lot of really old, crumpled, hunched members so, even though I recently retired, I still feel young in that crowd.  
 
 Tomorrow begins Passover which means the JCC is closed for the next 1 1/2 days for the eight-day Jewish holiday which commemorates the emancipation of the Israelites from slavery in ancient Egypt.  In Hebrew Passover is known as Pesach (which means “to pass over”), because God passed over the Jewish homes, saving the Jews, when killing the Egyptian firstborn on the very first Passover eve.
 
-The New England Patriots owner Robert Frost via his Foundation to Combat Antisemitism—introduced the blue square emoji as a symbol of solidarity with the Jewish people as part of the #StandUpToJewishHate campaign.  I support and endorse this.
-(As an important aside, Robert and his recently deceased first wife, Myrna, were great supporters of Brandeis causes.  He probably still is.)
+Sadly, in the last year and a half of membership, the JCC has had at least 2 bomb threats…which is unfortunate, frightening and representative of the increasing anti-semitism in most parts of the world, including the USA.
+
+The New England Patriots owner Robert Frost via his Foundation to Combat Antisemitism—introduced the blue square emoji as a symbol of solidarity with the Jewish people as part of the #StandUpToJewishHate campaign.  I support and endorse this. (As an aside, Robert and his recently deceased first wife, Myrna, were great supporters of Brandeis causes.  He probably still is.)
 
 #🟦,  #StandUpToJewishHate
 

@@ -3,9 +3,22 @@ please note all of these entries which aren't prior art are copyrighted © by me
 
 April 4
 
-I'm bummed because I just finished a brilliant entry on fatherhood, jewishness, passover and standing up to jewish hate and somehow it disappeared and i dont have the time to craft it again.  Stay tuned for tomorrow.
+I had no real experience with Jews growing up except the inappropriate and wrong view of them as alien, untrustworthy, shrewd.  
 
-Darn!
+“Jew” was a noun, adjective and verb. That being said, I was never brought up to think of Jews as Christ Killers.
+
+I have certainly matured in this respect at least.  I went to Brandeis University, Almost married a Jewish Brandeisienne and have many very close Jewish friends.  
+
+In addition, as I have moved to various places, I have probably belonged to 4-5 Jewish Community Centers, primarily to swim in the pool.  This includes my current membership at the JCC of greater Newton), where I probably swim6times a week.  We do wear swim caps like in Woody Allen movies.  Of interest, my current JCC has a lot of really old, crumpled, hunched members so, even though I recently retired, I still feel young in that crowd.  
+
+Sadly, in the last year and a half of membership, the JCC has had at least 2 bomb threats…which is unfortunate, frightening and representative of the increasing anti-semitism in most parts of the world, including the USA.
+
+Tomorrow begins Passover which means the JCC is closed for the next 1 1/2 days for the eight-day Jewish holiday which commemorates the emancipation of the Israelites from slavery in ancient Egypt.  In Hebrew Passover is known as Pesach (which means “to pass over”), because God passed over the Jewish homes, saving the Jews, when killing the Egyptian firstborn on the very first Passover eve.
+
+The New England Patriots owner Robert Frost via his Foundation to Combat Antisemitism—introduced the blue square emoji as a symbol of solidarity with the Jewish people as part of the #StandUpToJewishHate campaign.  I support and endorse this.
+(As an important aside, Robert and his recently deceased first wife, Myrna, were great supporters of Brandeis causes.  He probably still is.)
+
+#🟦,  #StandUpToJewishHate
 
 April 3rd
 

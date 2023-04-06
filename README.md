@@ -15,17 +15,19 @@ My dad's early circumstances weren’t easy. Being of mixed parents (Polish AND 
 
 He was a gently guy with dreams and desires and the drive for continual self-improvement.  He worked his way up and out including stoking his wanderlust by leaving landlocked northern Indiana and joining the WWII US Navy.  And...he read a lot.
 
-After the navy, he met my mom as they were on separate bowling leagues.  He was kind of from the 'other side of the tracks.'  Although my mom's family was by no means wealthy, my dziadzia was a grocer so they always had food, cigarettes (my mom's vice which contributed to her illnesses) and a car.  My mom had better off suitors but she somehow fell in love with "poor Fxxxx Vzzzz" a comment that always hurt my feelings when she told me.
+After the navy, he met my mom as they were on separate bowling leagues.  She was attracted to him even though he was kind of from the 'other side of the tracks.'  Although my mom's family was by no means wealthy, my dziadzia was a grocer so they always had food, cigarettes (my mom's vice which contributed to her illnesses) and a car.  My mom always said she had better off suitors but she somehow fell in love with "poor Fxxxx Vzzzz" a comment that always hurt my feelings when she told me.
 
-After leaving the navy and being a married father.  Although he never graduated from high school, he got his GED and took home study courses in auto mechanics.  although he never went to college, he expected all of his children to get higher degrees because we were 'college material' (as our teachers told him, which made him beam with pride).  My dad took swimming lessons when I was in kindergarten.  I remember going to the natatorium with the younger of my two sisters and our younger brother while he learned to swim.  I always thought that was an impressive indication of his continual desire for betterment.
+After leaving the navy and being a married father, although he never graduated from high school, he got his GED and took home study courses in auto mechanics. He took swimming lessons when I was in kindergarten.  I remember going to the natatorium with the younger of my two sisters and our younger brother while he learned to swim.  Although he never went to college, he expected all of his children to get higher degrees because we were 'college material' (as our teachers told him, which made him beam with pride).  He had a continual desire for improvement and betterment and was optimistic to the core.
 
-Becausse his circumstances were meager, he always worried about money.  I unfortunately picked that up from him too.
+Because his circumstances were meager, he always worried about money.  I unfortunately picked that up from him too.  Ironically, perhaps, he had a lust and zest for life and didn't want it to end.  He developed Acute Myelogenous Leukemia in his 80's and minimized how it intruded in his life.  He wanted to get a bone marrow transplant in the hopes of being cured but he was too old at the time to justify the risk (according to the doctors---he was willing if it gave him a chance for a cure).
 
-There are many things I picked up from my dad:  My own wonderlust, my desire to continue to learn and improve, my getting a college degreee and an MD, my love of swimming and, especially, the love of my sons.  Like in many families, I am sure, my dad was the softie and my mom was the disciplinarian.  I am very grateful to him for all of that.
+There are many things I picked up from my dad and I cherish:  My own wonderlust, my desire to continue to learn and improve, my getting a college degreee and an MD, my love of swimming and, especially, the love of my sons.  Like in many families, I am sure, my dad was the softie and my mom was the disciplinarian.  I am very grateful to him for all of that.
 
 I also remember when my dad would play with my sons when they were young.  He would get on the floor and play with them in a fun, funny non-pretentious way that reminded me of what a wonderful, acceptable and forgiving father he was to me.
 
 Being an american male from the WW era, he didn't tell us he loved us very much...but we knew he did.
+
+I wish he were stil here because I would value his way of being, his kindness and gentleness and his positivity.
 
 
 April 4

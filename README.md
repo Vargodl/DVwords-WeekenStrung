@@ -11,7 +11,7 @@ Both of my parents were of lower middle class Eastern European, Catholic descent
 
 Ironically, our last name really isn't hungarian but is probabaly not our real name but an Ellis Island artifact. The was a very unsettling realization when I learned (about 20 years ago) that my identity (at least the identity I associated with the heritage of my last name) was false.
 
-My dad's early circumstances weren’t easy. Being of mixed parents (Polish AND Hungarian), they spoke english in his house and he failed second grade because he couldn’t speak Polish (the laanguage of his parochial school) so he couldn’t really learn or succeed in school. His father died when he was 13, telling him that he ‘was the man of the family,’ and to take care of his mom and his multiple younger siblings. So, he dropped out of high school to support his mom and his sibs.
+My dad's early circumstances weren’t easy. Being of mixed parents (Polish AND Hungarian), they spoke english in his house and he failed second grade because he couldn’t speak Polish (the laanguage of his parochial school) so he couldn’t really learn or succeed in school. His father died when he was 13 due to an industrial accident at the Studebaker factory which probably ruptured his liver and/or spleen, telling him that he ‘was the man of the family,’ and to take care of his mom and his multiple younger siblings. So, he dropped out of high school to support his mom and his sibs.
 
 He was a gently guy with dreams and desires and the drive for continual self-improvement.  He worked his way up and out including stoking his wanderlust by leaving landlocked northern Indiana and joining the WWII US Navy.  And...he read a lot.
 

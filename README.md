@@ -1,6 +1,33 @@
 # DVwords-WeekenStrung©
 please note all of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.
 
+April 5
+
+In praise of a father.
+
+My dad was a fairly simple though very curious, mostly self-taught guy who loved life, his four kids and naively believed in the power of education. He was also devoted and dedicated to his wife (my mom) taking care of her in his clumsy clunky way after her severe debilitating stroke which, because it’s resulting depression and paranoia, caused her to be angry and mean to him and to openly call the neighbor a bitch for having an affair with him—neither of which were true. In her post stroke angry paranoid confused state, she was physically abusive to him, too, kicking and slapping him. To be fair in very small part he encouraged her to try to hit him with her withered, stroke-shrunken right arm—his best awkward attempts to get her some physical therapy.
+
+Both of my parents were of lower middle class Eastern European, Catholic descent.  My mom's parents were born in Poland and my mom grew up in an American Polish 'ghetto' with Polish being her first and only language (until she went to school at the local parochial grade school {which I also attended}.  My dad's mom was born in American of Polish immigrants and his father was from Hungary.  This was an issue when my dad met my mom's father (dziadzia in Polish) in that my dziadzia was unwilling to meet my dad at first becuase of his last name (which was Hungarian).  Dziadzia supposedly said that is my dad was not polish, he may as well be a Jew. (I include this only as a reference to my background as mentioned yesterday.)   
+
+Ironically, our last name really isn't hungarian but is probabaly not our real name but an Ellis Island artifact. The very unsettling realization that your identity (at least the identity you associated with the heritage of your last name) was false.
+
+My dad's early circumstances weren’t easy. Being of mixed parents (Polish AND Hungarian), they spoke english in his house and he failed second grade because he couldn’t speak Polish (the laanguage of his parochial school) so he couldn’t really learn or succeed in school. His father died when he was 13, telling him that he ‘was the man of the family,’ and to take care of his mom and his multiple younger siblings. So, he dropped out of high school to support his mom and his sibs.
+
+He wwas a gently guy with dreams and desires and the instinct for self-improvement.  He worked his way up and out including stoking his wanderlust by leaving landlocked northern Indiana and joining the WWII US Navy.
+
+After the navy, he met my mom as they were on separate bowling leagues.  He was kind of from the 'other side of the tracks.'  Although my mom's family was by no means wealthy, my dziadzia was a grocer so they always had food, cigarettes (my mom's vice which contributed to her illnesses) and a car.  My mom had better off suitors but she somehow fell in love with "poor Fxxxx Vzzzz" a comment that always hurt my feelings when she told me.
+
+After leaving the navy and being a married father.  Although he never graduated from high school, he got his GED and took home study courses in auto mechanics.  although he never went to college, he expected all of his children to get higher degrees because we were 'college material' (as our teachers told him, which made him beam with pride).  My dad took swimming lessons when I was in kindergarten.  I remember going to the natatorium with the younger of my two sisters and our younger brother while he learned to swim.  I always thought that was an impressive indication of his continual desire for betterment.
+
+Becausse his circumstances were meager, he always worried about money.  I unfortunately picked that up from him too.
+
+There are many things I picked up from my dad:  My own wonderlust, my desire to continue to learn and improve, my getting a college degreee and an MD, my love of swimming and, especially, the love of my sons.  Like in many families, I am sure, my dad was the softie and my mom was the disciplinarian.  I am very grateful to him for all of that.
+
+I also remember when my dad would play with my sons when they were young.  He would get on the floor and play with them in a fun, funny non-pretentious way that reminded me of what a wonderful, acceptable and forgiving father he was to me.
+
+Being an american male from the WW era, he didn't tell us he loved us very much...but we knew he did.
+
+
 April 4
 
 I had no real experience with Jews growing up except the inappropriate and wrong view of them as alien, untrustworthy, shrewd.  

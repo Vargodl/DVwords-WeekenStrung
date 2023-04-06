@@ -13,7 +13,7 @@ Ironically, our last name really isn't hungarian but is probabaly not our real n
 
 My dad's early circumstances weren’t easy. Being of mixed parents (Polish AND Hungarian), they spoke english in his house and he failed second grade because he couldn’t speak Polish (the laanguage of his parochial school) so he couldn’t really learn or succeed in school. His father died when he was 13, telling him that he ‘was the man of the family,’ and to take care of his mom and his multiple younger siblings. So, he dropped out of high school to support his mom and his sibs.
 
-He wwas a gently guy with dreams and desires and the instinct for self-improvement.  He worked his way up and out including stoking his wanderlust by leaving landlocked northern Indiana and joining the WWII US Navy.
+He was a gently guy with dreams and desires and the drive for continual self-improvement.  He worked his way up and out including stoking his wanderlust by leaving landlocked northern Indiana and joining the WWII US Navy.  And...he read a lot.
 
 After the navy, he met my mom as they were on separate bowling leagues.  He was kind of from the 'other side of the tracks.'  Although my mom's family was by no means wealthy, my dziadzia was a grocer so they always had food, cigarettes (my mom's vice which contributed to her illnesses) and a car.  My mom had better off suitors but she somehow fell in love with "poor Fxxxx Vzzzz" a comment that always hurt my feelings when she told me.
 

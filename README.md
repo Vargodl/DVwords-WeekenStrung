@@ -1,6 +1,31 @@
 # DVwords-WeekenStrung©
 please note all of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.
 
+April 6
+
+You can't go home again, said Thomas Wolfe--but you can retrieve the past by writing about it. (Margaret Atwood)
+
+Yesterday I wrote mostly about my dad. Today I will mostly explore my more complex and complicated relationship with my mother
+
+To be at least a good mother must be the hardest of the very common jobs with the largest membership.  On top of everything else every other class of person does, a mother has to use her uterus, vagina and brain not just for pleasure but also for nurturing, maintaining and propagating the species while being inconvenienced, sleep-deprived and semi-(at least)-incapacitated for a duration much beyond the gestational and lactational through to educational, recreational, differentiational,  separational and much beyond.  The job never really ends although it frequently does transmute into a positive bidirectional symbiosis.
+
+And the sons in their lives become especially attentive to and protective of the mother.  I for example once literally left my cousin on the side of the road in Rhode Island when he accused my mother of cheating at cards (canasta) but would not support the accusation with any examples. I mean, c’mon…canasta?
+
+(I guess when it comes to “fightin’ words,” moms can easily defend themselves probably better than we can but “fightin’ words” a red really trigger words to provoke confrontation…and I responded.)
+
+As Margaret Atwood also wrote, the pen is mightier than the sword, but only in retrospect: at the time of combat, those with the swords generally win.…and, I add, when push comes to shove, men will do most of the shoving and women will be the ones most pushed around. 
+
+
+The bond between a mother and her child is even more individualized and unique than is the bond between a mother and her children.
+
+My mom could, and did, ease my cares and fears even if she had to lie (not that anyone would consider her to be a liar, because she wasn’t).  One night when I was about 9 years old, I was night terrorized by the overwhelming knowledge that I was going to die that night.  I came crying uncontrollably to her and she simply said that everything was going to be okay.  I was able to sleep that night and all the nights afterward.  After knee surgery, between confused spasms of returning consciousness, somehow I knew she was there with me, poking me in the back and saying, “mom’s here, mom’s here!”
+
+Overall she was the axis around which my young self revolved into maturity in its comfortable orbit.  As I got older, I started to realize she was an independent person with thoughts, dreams, likes, a history and a societally imposed composition of roles, foibles, demons (image in au pair book shelf) and habits (both positive and self-destructive)…and I wondered why there seemed to differences in the way men and women were treated and the different expectations imposed upon them.  Whereas my dad left home to work all day every weekday, she worked away at various jobs but also seemed to be always working at home as well—cooking, washing, cleaning and so forth.
+
+…to be continued tomorrow,
+
+
+
 April 5
 
 In praise of a father.

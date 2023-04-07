@@ -11,7 +11,7 @@ To be at least a good mother must be the hardest of the very common jobs with th
 
 And the sons in their lives become especially attentive to and protective of the mother.  I for example once literally left my cousin on the side of the road in Rhode Island when he accused my mother of cheating at cards (canasta) but would not support the accusation with any examples. I mean, c’mon…canasta?
 
-(I guess when it comes to “fightin’ words,” moms can easily defend themselves probably better than we can but “fightin’ words” a red really trigger words to provoke confrontation…and I responded.)
+(I guess when it comes to “fightin’ words,” moms can easily defend themselves probably better than we can but “fightin’ words” are really trigger words to provoke confrontation…and I responded.)
 
 As Margaret Atwood also wrote, the pen is mightier than the sword, but only in retrospect: at the time of combat, those with the swords generally win.…and, I add, when push comes to shove, men will do most of the shoving and women will be the ones most pushed around. 
 

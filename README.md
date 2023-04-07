@@ -16,7 +16,7 @@ And the sons in their lives become especially attentive to and protective of the
 As Margaret Atwood also wrote, the pen is mightier than the sword, but only in retrospect: at the time of combat, those with the swords generally win.…and, I add, when push comes to shove, men will do most of the shoving and women will be the ones most pushed around. 
 
 
-The bond between a mother and her child is even more individualized and unique than is the bond between a mother and her children.
+The bond between a mother and her child is even more individualized and unique than is the bond between a mother and her children. i always thought that I was my mom's favorite but so did each of my sibs.
 
 My mom could, and did, ease my cares and fears even if she had to lie (not that anyone would consider her to be a liar, because she wasn’t).  One night when I was about 9 years old, I was night terrorized by the overwhelming knowledge that I was going to die that night.  I came crying uncontrollably to her and she simply said that everything was going to be okay.  I was able to sleep that night and all the nights afterward.  After knee surgery, between confused spasms of returning consciousness, somehow I knew she was there with me, poking me in the back and saying, “mom’s here, mom’s here!”
 

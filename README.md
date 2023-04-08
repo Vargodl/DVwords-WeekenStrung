@@ -1,6 +1,21 @@
 # DVwords-WeekenStrung©
 please note all of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.
 
+April 7
+
+Although my mom was upper or mid lower class, she grew up in a place, space, culture and time.  This was a time when men beat their wives who then joined them in beating their kids propagating a viscous (in both senses of the term) cycle. This was a time when priests preyed on parochial students (which I know from personal experience).
+There was definitely a double standard—a situation I am afraid we may be returning to with a razor thin political divide that even though it is about equally women, the women on each side seem to think (or don’t think) differently—especially when it comes to women’s rights. (As I write this, a Texas federal judge is halting the FDA approval of abortion pill mifepristone and Roe v Wade was recently overturned).  Her father “allowed” her to go to high school even though his mates mocked him for wasting education on a girl. So her way out, was to get married (and work). 
+  She did get married and had 4 kids: 2 older girls and then 2 boys, me being the older son. My mom remarked at how attentive my dad was to her while she was in the hospital with the girls but when I was borne he wasn’t. Rather, he was out calling all family and friends to brag “I have a son!” My dads name was Frank and I was supposed to take that name as a family tradition for the first born male. Instead she named me something different. 
+
+My mom was dutiful but not happy and I think she got increasingly depressed as she felt trapped in her increasingly constricted situation.   I know that she didn’t enjoy sex (at least that’s what my sister told me. I also know that I wasn’t breast fed, resulting in my brother being born 13 months after me. She slowly stopped taking care of herself, smoking more and drinking (beer) regularly and alone, reminiscent of Picasso’s The Absinthe Drinker.  She cooked for us and was very clean, pinning her hair with Bobby pins every night before work. But she barely ate the food she cooked and seemed to subsist mostly on Pepsi (or Coke), tea with real lemon juice. She also became increasingly isolated, not wanting to see others or even talk on the phone. She went to church religiously (as required) but always stayed in the back of the church. She was a compliant but nominal catholic. 
+
+She didn’t want to socialize or travel but rather stayed at home drinking and smoking later and later into the night.  My dad supplied her booze and ciggies but increasingly stopped being with her during these periods. She became increasingly unhealthy. 
+
+She worked until she had her first small stroke. My dad had retired earlier and he was looking forward to their traveling but that never really happened because of her stroke. She had a nearly fatal stroke while I was out of contact, moving to Chicago from Indianapolis. She spent several months in the hospital and then several years wheelchair bounds, right-side paralyzed and unable to speak. She should have faded away at home but my dad freaked out when she became comatose. I took her to the ER where she was hospitalized, dying of urosepsis a few hours later. She died about 10 months after Alex was borne. Winston never met her. 
+
+I wish life had been much better and more fair to her. I loved her and she deserved so much more. She wanted to be a nurse or a teacher…I’m not sure she wanted to be a parent. I am mostly sad when I think about her life. 
+
+
 April 6
 
 You can't go home again, said Thomas Wolfe--but you can retrieve the past by writing about it. (Margaret Atwood)

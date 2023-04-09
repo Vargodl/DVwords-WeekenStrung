@@ -1,6 +1,14 @@
 # DVwords-WeekenStrung©
 please note all of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.
 
+April 9
+
+6:36 am  I am risen!  Happy Oyster.  Khristos voskrese!
+
+April 8
+
+Malefemnism, con/tra/ception, the lowerarchy and Catholicism in context
+
 April 7
 
 Although my mom was upper or mid lower class, she grew up in a place, space, culture and time when men beat their wives who then joined them in beating their kids propagating a viscous (in both senses of the term) cycle. (This did not happen to her and us but it happened all around us and no-one did anything about it.). This was a time when priests preyed on parochial students (which I know from personal experience).

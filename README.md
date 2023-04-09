@@ -1,5 +1,5 @@
 # DVwords-WeekenStrung©
-please note all of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.
+PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.
 
 April 9
 
@@ -9,7 +9,7 @@ When Lilacs Last in the Dooryard Bloom’d (BY WALT WHITMAN)...with a 'desequenc
 
 April 8
 
-to be elaborated on over the next few days: Malefemnism, con/tra/ception, the lowerarchy and Catholicism in context
+The following topics to be elaborated on over the next few days: Malefemnism, con/tra/ception, the lowerarchy and Catholicism in context
 
 More on mom: 
 1. although they weren't called such at the time, mom's "love languages" were service, deprivation and sacrifice

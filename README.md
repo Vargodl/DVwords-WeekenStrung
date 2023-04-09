@@ -3,11 +3,20 @@ please note all of these entries which aren't prior art are copyrighted © by me
 
 April 9
 
-6:36 am  I am risen!  Happy Oyster.  Khristos voskrese!
+6:36 am:  I am risen!  Happy Oyster.  Khristos voskrese!
+
+When Lilacs Last in the Dooryard Bloom’d (BY WALT WHITMAN)...with a 'desequenced' title like that, you can see how he was a contemporary of Joyce
 
 April 8
 
-Malefemnism, con/tra/ception, the lowerarchy and Catholicism in context
+to be elaborated on over the next few days: Malefemnism, con/tra/ception, the lowerarchy and Catholicism in context
+
+More on mom: 
+1. although they weren't called such at the time, mom's "love languages" were service, deprivation and sacrifice
+2. her main nutrition group was caffeinated beverages: hot lipton (or cheaper) teabag tea in the morning and one  16 oz bottle of pop at a time  which she had us buy from from Wiltz, local store, to which we would walk for her, usually alone.
+
+
+"Sinned by Dev'lish"© Dennis Vargo, 2023.
 
 April 7
 

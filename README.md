@@ -9,6 +9,10 @@ When Lilacs Last in the Dooryard Bloom’d (BY WALT WHITMAN)...with a 'desequenc
 
 April 8
 
+
+"Sinned by Dev'lish"© Dennis Vargo, 2023.
+
+
 The following topics to be elaborated on over the next few days: Malefemnism, con/tra/ception, the lowerarchy and Catholicism in context
 
 More on mom: 
@@ -19,41 +23,28 @@ THE ORIGIN OF LAUGHTER by John Updike
 (after Desmond Morris)
 
 Hunched in the dark beneath his mother's heart, 
-
 The fetus sleeps and listens; dropped into light, 
-
 He seeks to lean his ear against the breast 
-
 Where the known rhythm holds its secret pace.
 
 
 
 Slowly, slowly, through blizzards of dozing, 
-
 A face is gathered, starting with the eyes--
-
 At first, quite any face; two painted dots 
-
 On cardboard stir a responsive smile. Soon 
-
 No face but one will serve: the mother's, 
-
 A mist, a cloud that clearly understands.
 
 
 
 She teases him, pretends to let him drop.
-
 He wants to cry but knows that she is good.
-
 Out of this sudden mix, this terror rimmed 
-
 With necessary flesh, a laugh is born.
 
 
 
-
-"Sinned by Dev'lish"© Dennis Vargo, 2023.
 
 
 April 7

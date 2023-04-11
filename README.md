@@ -1,6 +1,16 @@
 # DVwords-WeekenStrung©
 PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.
 
+Aprill 11
+
+From nothing to nothing and the nothingness in between 
+
+I don’t believe in the impossible
+
+My first boner fide sexual experiences were with a manatee.
+
+
+
 April 10
 
 My love language is humor and surprise

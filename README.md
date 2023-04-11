@@ -7,6 +7,14 @@ From nothing to nothing and the nothingness in between...
 
 I don’t believe in the impossible
 
+O Fortune, you are fickle as the moon, always waxing and waning;
+this miserable life first wrecks, then cures at a whim; 
+poverty and power melt like ice. 
+Fate, you monster of emptiness, you malevolent whirling wheel- 
+happiness is in vain, and always fades away.
+   Orff’s Carmina
+
+
 
 Sex!
 
@@ -26,6 +34,29 @@ I kept experimenting with flavored and aroma’d (flavored) crotch shampoos/soap
 But then I realized that few really like or focus on the taste. It’s the Lusty erotic desire and/or driven obsession to be there and to share that is the be all end (all). Few are really in it for the taste. The lust center and obsession so overdrives the gustatory center.
 
 Italian women’s netherlips  are slightly gar licky; French women’s clams are oysters in garlic.  Most Jewish women appreciate if you 'challah' down the canyon.
+
+
+…To quote Samuel Beckett: "Thats how it is on this bitch of an earth"
+
+and, per Bruce Springsteen, With Every Wish:
+
+These days I sit around and laugh
+At the many rivers I've crossed
+But on the far banks there's always another forest
+Where a man can get lost
+Well there in the high trees love's bluebird glides
+Guiding us 'cross to another river on the other side
+And there someone is waitin' with a look in her eyes
+And though my heart's grown weary
+And more than a little bit shy
+Tonight I'll drink from her waters to quench my thirst
+And leave the angels to worry
+With every wish (there comes a curse)
+
+https://youtu.be/1x_xkn-T5SM (last stanza)
+
+
+
 
 
 

@@ -12,7 +12,7 @@ So did Logan Roy…and so many people seem to care though in Logan’s case…re
 
 We often conflate excuse and explanation for cause. Any reasonable, rationale person frequently does this in the ongoing learn (and ideally learn and confirm) iterative process. Very rational, very Humean.  This can be very difficult is times of seismic (even if slow, with jiggly bits) shift.
 
-That is where I am teetering with respect to the active male support of women’s rights, which I call “malefemnism” because I do think men will likely never completely understand what it means for women to be equal. That’s why I call it Malefemnism — because it is a male (and imperfect, ergo the mal—> bad) femnism (incomplete feminism).
+That is where I am teetering with respect to the active male support of women’s rights, which I call “malefemnism” because I do think men will likely never completely understand what it means for women to be equal. That’s why I call it Malefemnism — because it is a male (and imperfect, ergo the mal—> bad) femnism (incomplete feminism).  I propose that most people agree that men are practically the dominant sex...And, it is unlikely men will ever be so omniscient that they will ever cede to complete parity...that is a bridge just a bit too far.
 
 I consider myself an active supporter and attempted to understand this equality but I admit it is imperfect and in some ways uncomfortable because I’m still a bit insecure in it. Although I came of awareness in the second wave of femnism, I get confused with the “pronoun” titles miss, mrs, Ms. (Of course there’ they/them, etc., but that largely a different though similar story entirely.)
 

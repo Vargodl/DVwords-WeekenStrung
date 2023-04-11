@@ -16,7 +16,7 @@ I kept experimenting with flavored and aroma’d (flavored) crotch shampoos/soap
 
 But then I realized that few really like or focus on the taste. It’s the Lusty erotic desire and/or driven obsession to be there and to share that is the be all end (all). Few are really in it for the taste. The lust center and obsession so overdrives the gustatory center.
 
-Italian women’s netherlips  are slightly gar licky; French women’s oysters are clammy.  Most Jewish women will let you challah down the canyon.
+Italian women’s netherlips  are slightly gar licky; French women’s clams are oysters in garlic.  Most Jewish women appreciate if you 'challah' down the canyon.
 
 
 

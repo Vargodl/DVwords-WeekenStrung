@@ -1,6 +1,43 @@
 # DVwords-WeekenStrung©
 PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.
 
+April 10
+
+My love language is humor and surprise
+
+
+PhD, GHD’s brother died Easter yesterday In Catania. RIP
+
+So did Logan Roy…and so many people seem to care though in Logan’s case…really???  Get a life.
+
+We often conflate excuse and explanation for cause. Any reasonable, rationale person frequently does this in the ongoing learn (and ideally learn and confirm) iterative process. Very rational, very Humean.  This can be very difficult is times of seismic (even if slow, with jiggly bits) shift.
+
+That is where I am teetering with respect to the active male support of women’s rights, which I call “malefemnism” because I do think men will likely never completely understand what it means for women to be equal. That’s why I call it Malefemnism — because it is a male (and imperfect, ergo the mal—> bad) femnism (incomplete feminism).
+
+I consider myself an active supporter and attempted to understand this equality but I admit it is imperfect and in some ways uncomfortable because I’m still a bit insecure in it. Although I came of awareness in the second wave of femnism, I get confused with the “pronoun” titles miss, mrs, Ms. (Of course there’ they/them, etc., but that largely a different though similar story entirely.)
+
+I was very close to my mom growing up and saw her working ALL THE TIME (seemingly) whereas I knew my dad worked hard at his job (and I saw many of the scars and burns he received at work).  But then he came home, did a few jobs as necessary but could relax where my mom never seemed to stop.  That seeming inequity is my early entry into feminism.
+
+Puberty and the Catholic Church kind of messed some of that up for me.  There is something about the female body (this is instinctive, reactive, semi-automatic, I think)—especially the naked body or the braless, nipples blaring tight top (and  many of the other revealing 'coverings' what seem to me to be uncomfortable yet so provocative they push the perve autopilot button) that makes men (at least me) mindless. Love lust sex pleasure procreation, mostly admittedly selfish pleasure—some combination of that and others and feminism is very difficult to rationally support at those times…even as a malefemnist.  Some other “animal brain” which rapidly cycles fast and slow takes over—it’s like the little devil on your left shoulder knocking out the little angel on your right shoulder with sleeping gas.
+
+How/why did this inequity ever come about?  There are no causes but I think I have some postulative explanations, including though not necessarily in any definitive order:
+Women are physically smaller and weaker…better to be subservient than always at unknown risks;
+The obvious physical changes that occur at puberty…triggering male urges and brainlessness  mentioned above
+The male sexual equipment, protruding, penetrative (and relatively quick to erect and be satisfied) vs the inner hidden receptacle of the female…historically a secondary consideration for pleasure (if a consideration).  Once the male has been satisfied, there may not have been the reciprocation of pleasure, perhaps not even the knowledge or desire for it.  (It takes a long time for the male to control himself for mutual pleasure—especially when the ‘heat oft5he moment’ gets uncontrollably hot. (In fact, I sometimes wonder if orgasm is actually pleasurable (I really think it very much is) or merely so programmed, instinctive and automatic that the experiencer isn’t really aware (during as well as anytime after) but goes through a series of mind-altering neurobiological, neurochemical, neurohormonal, neuropheromonal and other mind altering, mind numbing alterations and gyrations which in themselves imbue the experience with a recollection of intense pleasure and the reinforcing mindless urgency to do it over and over…perhaps similar if not identical to rats, cocaine and dopamine?
+The ability/risk of getting pregnant and pregnancy itself--which can elicit protectiveness and vulnerability--not to mention the miraculous element of the process
+Childbirth, including (historically) high maternal and infant mortality
+Lactation with its seemingly natural purpose and benefits but which keep mothers down (also enhancing the female frontal contour)
+The likely frequent feminine social and emotional abilities to keep peace vs the male “catch and kill” competition.  Even now, boys play at war with Toy soldiers (winners and losers), whereas girls play with their Barbies socializing at tea.  [I know that some of this may be contemporary societal programming.]
+(I think it was Margaret Atwood who wrote: no matter how high the tech, Homo sapiens remains at heart what he's been for tens of thousands of years -the same emotions, the same preoccupations, the same good, bad, and ugly. Were a mixed bag, we humans.
+The genetic familiarity in offspring which keep fathers invested…and protective.
+etc…
+
+I do believe that, in general, progress is being made though it is staccato, backsliding intermittently and, with the repeal of Roe v Wade and the recent judgement by a Texas judge’s ruling on the abortion medication mifepristone.  Having worked in the pharma industry for most of my career, this seems like significant and worrisome judicial overreach which can happen when there is maliscious intent.  The FDA approves drugs, including the approved indications. The judiciary doesn’t have anything to do with this, which is a rigorous scientific review process.  It seems similar to if a Texas judge decided that Jeff Bezos foundation loses its tax benefits (leaving other foundations unaffected).
+It’s like boiling a frog…losing rights slowly, so slowly that you don’t recognize it until it is too late. 
+
+...And its worrisome.
+
+
 April 9
 
 6:36 am:  I am risen!  Happy Oyster.  Khristos voskrese!

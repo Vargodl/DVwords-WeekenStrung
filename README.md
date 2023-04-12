@@ -1,6 +1,28 @@
 # DVwords-WeekenStrung©
 PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.  I intend to not reveal specific embarassing intimacies of anyone so some of this will be generalized, anonymized and/oraltered for effect.
 
+April 12, post VARGOLADS.  Thanks to Donnie and Italianmafia for joining us.
+
+Concerning mothers, although I don't entirely agree with this interesting quote from A Portrait of the Artist as a Young Man, but I think that it generally applies:
+"Whatever else is unsure in this stinking dunghill of a world a mother’s love is not."
+
+Of the ~ 20 partners I've had in my life time, 3-4 of them had comparable appetites as I did and that was wonderful.  One woman, a college senior when I knew her was living with me for a while.  She used to stay up late studying and come to bed, waking me up by 'bouncing up and down' on me.  Always great be awaken that way.  That was special.  
+
+Interstingly, a similar response doesn't generally apply to female partners (from my experience, at least).  When 
+
+
+
+We are not helpless, we are men...
+All are strangers,
+All are friends,
+All are brothers:
+
+https://youtu.be/veQxK8bV7cs
+
+(Stephen Stills, We are not helpless).
+
+
+
 Aprill 11--Note that as of 11 AM today, I altered yesterdays entry a bit as well.
 
 From nothing to nothing and the nothingness in between...

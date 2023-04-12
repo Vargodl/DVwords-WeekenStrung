@@ -5,7 +5,7 @@ Aprill 11--Note that as of 11 AM today, I altered yesterdays entry a bit as well
 
 From nothing to nothing and the nothingness in between...
 
-I don’t believe in the impossible
+I don’t believe in the impossible (except conceptually)
 
 O Fortune, you are fickle as the moon, always waxing and waning;
 this miserable life first wrecks, then cures at a whim; 
@@ -16,9 +16,9 @@ happiness is in vain, and always fades away.
 
 
 
-Sex!
+Ah! Sex!
 
-i estimate that i have probably had about 20 sexual partners (involving AT LEAST but usually more than mutual nakedness, frottage or some orgiastic experience, usually shared (sequentially but sometimes simultaneously) by both).  Most but not of this was serial monogamy, sometimes serial agony.  Concerning night stands and hat stands, one night stands were very rare...though they occurred, usually with someone I otherwise knew before...and afterwards (though sometimes getting grief afterwards).  My youngest partner was
+I estimate that i have probably had about 20 sexual partners (involving AT LEAST but usually more than mutual nakedness, frottage or some orgiastic experience, usually shared (sequentially but sometimes simultaneously) by both).  Most but not of this was serial monogamy, sometimes serial agony.  Concerning night stands and hat stands, one night stands were very rare...though they occurred, usually with someone I otherwise knew before...and afterwards (though sometimes getting grief afterwards).  My youngest partner was
 probably 15 when we began our intermittent dalliance.  The oldest was twice my age (le'ts just say she was older than 50).  That didnt end well primarily because after a few times together, I replaced her with a much younger (age congruent) partner.  Though she was a very liberal and educated older woman, I was surprised at how inexperienced she was...even shocked when i added a very slight hint of spice to our vanilla though we were still quite mainstream. It surprises me to realize it is very likely she has died of old age by now (or maybe the rapture of ecstacy?).  
 
 Few of the women were virgins (how archaic is that concept?)...and in each case, I did not 'deflower them' (again, sorry for the medieval botanical reference).  The only non-white (in this case black) woman was a virgin who really seemed to wanted to go all the way but i felt too responible to so casually do that.  But, had I, we likely would have ended up in a longer term relationship--which could have been very nice; I think we were novelties for each other.  (And I realize from chatting with others and from movies that some girls really just 'want to get it over!')  Most though not all were North Americans.  There were several jews, mostly christians and/or spiritual at least.  I am unaware if any were muslim, Wiccan (though some ended up being real witches), or other Eastern religions.  Other than marriage, the longest, which was intermittent, probably lasted 8 years end to end with actual total time as a couple being 3.25 years.  There are at least 3 women (not included in the estimated 20), probably a lot more, that I regret not successfully pursuing more aggressively.  As is known, though, I was  was raised conservatively Catholic which means that I was required to confuse love with lust and have to convince myself I was in love before I could have sex.  The first time I was manually pleased, I literally shook all night because of my Catholic guilt.  The kind and gentle deliverer of such confusing ecstacy was afraid she had seriously hurt me in some inexplicable way.

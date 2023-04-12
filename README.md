@@ -6,7 +6,7 @@ April 12, post VARGOLADS.  Thanks to Donnie and Italianmafia for joining us.
 Concerning mothers, although I don't entirely agree with this interesting quote from A Portrait of the Artist as a Young Man, I do think that it generally applies:
 "Whatever else is unsure in this stinking dunghill of a world a mother’s love is not."
 
-Of the ~ 20 partners I've had in my life time, 3-4 of them had comparable appetites as I did and that was wonderful.  One of them was a woman who was a college senior when I knew her who was living with me for a while.  She used to stay up late studying and come to bed, waking me up by 'bouncing up and down' on me.  Always great be awaken that way.  That was special.  
+Of the ~ 20 partners I've had in my life time, 3-4 of them had comparable appetites as I did and that was wonderful.  One of them was a woman who was a college senior when I knew her who was living with me for a while.  She used to stay up late studying and come to bed, waking me up by nakedly 'bouncing up and down' on my pogo stick.  Always great be awaken that way.  That was special.  
 
 She also gave me my first copy of Ulysses so she clearly has influenced me in several important mind and body ways that I will always remember.  Thanks, Augustina!
 

@@ -8,7 +8,7 @@ Concerning mothers, although I don't entirely agree with this interesting quote 
 
 Of the ~ 20 partners I've had in my life time, 3-4 of them had comparable appetites as I did and that was wonderful.  One of them was a woman who was a college senior when I knew her who was living with me for a while.  She used to stay up late studying and come to bed, waking me up by nakedly 'bouncing up and down' on my pogo stick.  Always great be awaken that way.  That was special.  
 
-She also gave me my first copy of Ulysses so she clearly has influenced me in several important mind and body ways that I will always remember.  Thanks, Augustina!
+She also gave me my first copy of Ulysses (which I still have, very dog-earred though it be) so she clearly has permanently influenced me in several important mind and body ways that I will always remember.  Thanks, Augustina!
 
 Interstingly, a similar response to unilaterally initiated night bonking doesn't generally apply to female partners (from my experience, at least).  In other words, when a female partner loves you so much that she says she wants you as much as you want her and that she is available anytime you want, DON'T think that includes while she is sleeping.
 

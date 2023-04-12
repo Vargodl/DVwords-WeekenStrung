@@ -6,15 +6,19 @@ April 12, post VARGOLADS.  Thanks to Donnie and Italianmafia for joining us.
 Concerning mothers, although I don't entirely agree with this interesting quote from A Portrait of the Artist as a Young Man, I do think that it generally applies:
 "Whatever else is unsure in this stinking dunghill of a world a mother’s love is not."
 
-Of the ~ 20 partners I've had in my life time, 3-4 of them had comparable appetites as I did and that was wonderful.  One woman, a college senior when I knew her was living with me for a while.  She used to stay up late studying and come to bed, waking me up by 'bouncing up and down' on me.  Always great be awaken that way.  That was special.  
+Of the ~ 20 partners I've had in my life time, 3-4 of them had comparable appetites as I did and that was wonderful.  One of them was a woman who was a college senior when I knew her was living with me for a while.  She used to stay up late studying and come to bed, waking me up by 'bouncing up and down' on me.  Always great be awaken that way.  That was special.  
 
-Interstingly, a similar response doesn't generally apply to female partners (from my experience, at least).  In other words, when a female partner loves you so much that she says she wants you as much as you want her and that she is available anytime you want, DON'T think that includes while she is sleeping.
+She also gave me my first copy of Ulysses so she clearly has influenced me in several important mind and body ways that I will always remember.  Thanks, Augustina!
 
-DON'T unilaterally initiate night sex with her whyle she is sleeping. The fact that she is sleeping is a hint that she is not interested at that moment in being raw dog impaled from behind. If you do this, she is never moist enough and really receptive.  Afterwards, you are dopamined and oxytocined easily able to doze off to sleep in heavenly peace, and she is wide awake, damp, unconfortable and NOW SHE WANTS TO SHARE (e.g., TALK ABOUT, aka 'complain') about THAT EXPERIENCE WITH YOU as you piss her off by continuing to nod off.  Better to take a cold shower (which I don't actually recommend unless you are Wim Hopf) or a mono-a-mono tug.
+Interstingly, a similar response to unilaterally initiated night bonking doesn't generally apply to female partners (from my experience, at least).  In other words, when a female partner loves you so much that she says she wants you as much as you want her and that she is available anytime you want, DON'T think that includes while she is sleeping.
+
+DON'T unilaterally initiate night sex with her whyle she is sleeping. The fact that she is sleeping could be considered a hint that she is not interested at that moment in being raw dog impaled from behind (it's usualy easier from behind). If you do this, she is never moist enough and really receptive.  Afterwards, you are dopamined and oxytocined easily able to doze off to sleep in heavenly peace, and she is wide awake, damp, unconfortable (likely even sore, you selfish bastard) and NOW SHE WANTS TO SHARE (e.g., TALK ABOUT, aka 'complain') about THAT EXPERIENCE WITH YOU as you further piss her off by continuing to nod off.  Better to take a cold shower (which I don't actually recommend unless you are Wim Hopf) or a mono-a-mono tug.
 
 
-There are many, usually poorly understood stages of relationships: rapacious, ravenous and constant sex is certainly one of them.  Eventually you realize that it is not a choice between sex and eating, but rather a sequencing situation.  The sooner you learn that, the better off you will be. Eventually you will you realize you can have and eat your cake, er, pie.
+There are many, usually poorly understood stages of relationships including the sexual elements of a relationship, including rapacious, ravenous and constant, residual and oh! darn!!!   Eventually you realize that it is not a choice between sex and eating, but rather a sequencing decision.  The sooner you learn that, the better off you will be. Eventually you will you realize you can have and eat your cake, er, pie.
 
+
+...and now a message about brotherhood of sorts:
 
 We are not helpless, we are men...
 All are strangers,

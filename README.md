@@ -10,7 +10,7 @@ Of the ~ 20 partners I've had in my life time, 3-4 of them had comparable appeti
 
 She also gave me my first copy of Ulysses (which I still have, very dog-earred though it be) so she clearly has permanently influenced me in several important mind and body ways that I will always remember.  Thanks, Augustina!
 
-Interstingly, a similar response to unilaterally initiated night bonking doesn't generally apply to female partners (from my experience, at least).  In other words, when a female partner loves you so much that she says she wants you as much as you want her and that she is available anytime you want, DON'T think that includes while she is sleeping.
+Interestingly, a similar response to unilaterally initiated night bonking doesn't generally apply to female partners (from my experience, at least).  In other words, when a female partner loves you so much that she says she wants you as much as you want her and that she is available anytime you want, DON'T think that includes while she is sleeping.
 
 DON'T unilaterally initiate night sex with her while she is sleeping. The fact that she is sleeping could be considered a hint that she is not interested at that moment in being raw dog impaled from behind (it's usualy easier from behind). If you do this, she is never moist enough and really receptive.  Afterwards, you are dopamined and oxytocined easily able to doze off to sleep in heavenly peace, and she is wide awake, damp, unconfortable (likely even sore, you selfish bastard) and NOW SHE WANTS TO SHARE (e.g., TALK ABOUT, aka 'complain') about THAT EXPERIENCE WITH YOU as you further piss her off by continuing to nod off.  Better to take a cold shower (which I don't actually recommend unless you are Wim Hopf) or a mono-a-mono tug.
 

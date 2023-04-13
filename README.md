@@ -15,7 +15,7 @@ Interestingly, a similar response to unilaterally initiated night bonking doesn'
 DON'T unilaterally initiate night sex with her while she is sleeping. The fact that she is sleeping could be considered a hint that she is not interested at that moment in being raw dog impaled from behind (it's usualy easier from behind). If you do this, she is never moist enough and really receptive.  Afterwards, you are dopamined and oxytocined easily able to doze off to sleep in heavenly peace, and she is wide awake, damp, unconfortable (likely even sore, you selfish bastard) and NOW SHE WANTS TO SHARE (e.g., TALK ABOUT, aka 'complain') about THAT EXPERIENCE WITH YOU as you further piss her off by continuing to nod off.  Better to take a cold shower (which I don't actually recommend unless you are Wim Hopf) or a mono-a-mono tug.
 
 
-There are many, usually poorly understood stages of relationships including the sexual elements of a relationship, including rapacious, ravenous and constant, residual and oh! darn!!!   Eventually you realize that it is not a choice between sex and eating, but rather a sequencing decision.  The sooner you learn that, the better off you will be. Eventually you will you realize you can have and eat your cake, er, pie.
+There are many, usually poorly understood stages of the developing sexual relationships including rapacious, ravenous, constant, residual and oh! darn!!!  (Though not necessarily in that order.)  Eventually you realize that it is not a choice between sex and eating, but rather a sequencing decision.  The sooner you learn that, the better off you will be. Eventually you will realize you can have and eat your cake, er, pie.
 
 
 ...and now a message about brotherhood of sorts:

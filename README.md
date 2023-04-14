@@ -3,6 +3,11 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 
 April 14
 
+
+“Man can do what he wills but he cannot will what he wills.”
+-Arthur Shopenhauer
+
+
 Julia Totosy and friend arrive today to stay with us for a few days so that Julia can run the Boston Marathon on Monday.
 
 Continuing a bit on the theme of Cat-licks from yesterday, many good cathlic boys, especially those who went to parochial schools (as was and did I), grew up wanting to become priests.  A son becoming a priest was the easiest ticket for cathlick parents to get into heaven, it was better than 'don't cross go,' more like chutes and ladders directly into the welcoming and loving arms of God the father, bypassing St Pete at the gates.  Planning to be a priest was the pride of all catholic parents and the boast of families. I was interested in becoming a priest for quite a while and much longer than most, even after high school, even visiting a few seminaries to check out the life a bit.  But some seminarians were weird and not what I would consider holy.  Some seemed to be running from pregnancy scares (as if becoming a priest would curb your lusts or something--we all see how well that went), some were malicious maybe trying to atone for misdeeds of the past (one of the guys told me that when he and his friends were doing LSD, he would buy burning hot pizza and convince then that it wasn't hot and to eat it quickly so that they would burn their tongues and the roofs of their months on the molten cheese--I'm telling you so really weird stuff. And, of course. there were the sexual perverts and deviates.  I'll talk about them later too.
@@ -13,9 +18,35 @@ Remember too that I wss kind of poor and wanted to get a good higher education--
 
 And for poor women, getting they to a nunnery was one of the few ways they could avoid the trap of marriage, constant pregnancy and being someone's sexual release.  Sadly that was about as good as it got for women.  They were free from marriage, pregnancy and unwanted porking but as free as slaves who were repressed handmaids of the lord, never taken to bed by the bridegroom. Adn they had to turn the other way when the priests diddled where they shouldn't. That life is generally quite a long time was tough for the religious because the spirit could sublimate for so long but then the rest of life as a repressed servant was tough, too. 
 
-I had nuns as teachers at St Doofus and the Bleeding Fuckin Heart, the parochial grade school I attended.  For the most part, they were bitter with a whiff of BenGay and Vicks Vapo-Rub mixed with the stench of self important entitlement.  And they did some really mean and cruel things to some of the students, too.  Smack their heads against the radiators, make them lick cacti, and, probably most bothersome, they use to have their favorites female students sit at their feet while they were teaching to scratch and pic their festering leg wounds (which they probably got from when they whipped themselves with palm trees before Easter).
+I had nuns as teachers at St Doofus and the Bleeding Fuckin Heart, the parochial grade school I attended.  For the most part, they were bitter with a whiff of BenGay and Vicks Vapo-Rub mixed with the stench of self important entitlement.  And they did some really mean and cruel things to some of the students, too.  Smack their heads against the radiators, make them lick cacti, and, probably most bothersome, they use to have their favorites female students sit at their feet while they were teaching the class and have them scratch and pic their festering leg wounds (which they probably got from when they whipped themselves with palm trees before Easter).
 
-Pope as kingly goal
+It was a sick situation but you can see why, as mentioned recently...men beat their wives and both beat their kids and nobody did anything about it.  Priests abused whomever they wanted, including the nuns and the priests and nuns took it out on the kids because they could.  Parents rarely believed you if you shared some of the ugly things they were doing.  Sometimes parents would punish you for bringing it up and/or accuse you of causing it to happen.  My parents were never than way, I must say.
+
+So for me personally, the prominence of religion (especially Catholicism) has diministed quite a bit.  The same has been true of societies for the past several hundred years. I am a bit ashamed to realize that I was not a more open minded inquisitive questioner over a large part of my life.  I am utterly amazed that many historically did this.
+
+As Matthew Arnold wrote and I paraphrase from Dover Beach (on of my many favorite poems):
+
+The eternal note of sadness …
+
+The Sea of Faith once at the full, 
+round earth's shore Lay 
+like the folds of a bright girdle furled. 
+But now only 
+melancholy, long, withdrawing,
+Retreating to the night-wind, 
+And naked shingles of the world.
+
+
+
+
+On a little lighter more intiniate side, as we'd recently talked about partners, consider this interesting quote from Ulysses:
+
+"Touch me. Soft eyes. Soft soft soft hand. I am lonely here. O, touch me soon, now. What is that word known to all men? I am quiet here alone. Sad too. Touch, touch me" 
+
+or this tender song by Neil Diamond:
+
+https://youtu.be/7HD6O9patDE
+
 
 
 

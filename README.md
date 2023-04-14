@@ -47,6 +47,7 @@ And naked shingles of the world.
 
 
 
+
 On a little lighter more intiniate side, as we'd recently talked about partners, consider this interesting quote from Ulysses:
 
 "Touch me. Soft eyes. Soft soft soft hand. I am lonely here. O, touch me soon, now. What is that word known to all men? I am quiet here alone. Sad too. Touch, touch me" 

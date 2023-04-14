@@ -24,16 +24,24 @@ It was a sick situation but you can see why, as mentioned recently...men beat th
 
 So for me personally, the prominence of religion (especially Catholicism) has diministed quite a bit.  The same has been true of societies for the past several hundred years. I am a bit ashamed to realize that I was not a more open minded inquisitive questioner over a large part of my life.  I am utterly amazed that many historically did this.
 
-As Matthew Arnold wrote and I paraphrase from Dover Beach (on of my many favorite poems):
+As Matthew Arnold wrote in Dover Beach (on of my many favorite poems, slightly truncated):
 
 The eternal note of sadness …
 
-The Sea of Faith once at the full, 
-round earth's shore Lay 
-like the folds of a bright girdle furled. 
+The Sea of Faith
+
+once at the full, 
+
+round earth's shore Lay  
+
+like the folds of a bright girdle furled.
+
 But now only 
+
 melancholy, long, withdrawing,
-Retreating to the night-wind, 
+
+Retreating to the night-wind,
+
 And naked shingles of the world.
 
 
@@ -42,6 +50,7 @@ And naked shingles of the world.
 On a little lighter more intiniate side, as we'd recently talked about partners, consider this interesting quote from Ulysses:
 
 "Touch me. Soft eyes. Soft soft soft hand. I am lonely here. O, touch me soon, now. What is that word known to all men? I am quiet here alone. Sad too. Touch, touch me" 
+
 
 or this tender song by Neil Diamond:
 

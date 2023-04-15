@@ -1,6 +1,24 @@
 # DVwords-WeekenStrung©
 PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.  I intend to not reveal specific embarassing intimacies of anyone so some of this will be generalized, anonymized and/oraltered for effect.
 
+April 15
+
+Today is the 10th anniversary of the Boston Marathon Bombing. Win, Margie and I lived in the Boston area when that happpened and it was a terrifying, unreal week. Margie had been at the site of the first bomb the day before it went off and Boston was essentially on lockdown (sheltering in place) all week. I was concerned about Win because I didn't at first know where he was. He kindly fairly quickly confirmed he was OK, which is a thoughtfulness I hope people generally do.  
+
+It is still a tearful remembrance, especially poignant on a day like today.(
+
+The bombing changed Boston and affected us in many ways. Even though all things considered, the number of lives lost and the destruction was relatively minor compared to bombings in other areas (including of course the WTC on 911), Boston lost its immunity and sense of safety. Boston became militarized and the police were the celebrated heroes.
+
+There is quite a well-done movie about the event called "Patriot's Day" by Boston's own Mark Wahlberg.  We will watch it tomorrow with friends who are staying with us and who will run the marathon on Monday. 
+
+Patriots' Day is the April mid-month Monday when the marathon is run. It is a Massachusetts state holiday and frequently, including this year delays tax day until the day after. 
+
+Here's to all patriots, veterans and doers of good deeds, including the health care staff and service staff that helped all of us get through the pandemic. 
+
+Most people are good.  
+
+
+
 April 14
 
 

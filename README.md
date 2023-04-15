@@ -3,9 +3,9 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 
 April 15
 
-Today is the 10th anniversary of the Boston Marathon Bombing. Win, Margie and I lived in the Boston area when that happpened and it was a terrifying, unreal week. Margie had been at the site of the first bomb the day before it went off and Boston was essentially on lockdown (sheltering in place) all week. I was concerned about Win because I didn't at first know where he was. He kindly fairly quickly confirmed he was OK, which is a thoughtfulness I hope people generally do.  
+Today is the 10th anniversary of the Boston Marathon Bombing. Win, Margie and I lived in the Boston area when that happened and it was a terrifying, unreal week. Margie had been at the site of the first bomb the day before it went off and Boston was essentially on lockdown (sheltering in place) all week. I was concerned about Win because I didn't at first know where he was. He kindly fairly quickly confirmed he was OK, which is a thoughtfulness I hope people generally do.  
 
-It is still a tearful remembrance, especially poignant on a day like today.(
+It is still a tearful remembrance, especially poignant on a day like today.
 
 The bombing changed Boston and affected us in many ways. Even though all things considered, the number of lives lost and the destruction was relatively minor compared to bombings in other areas (including of course the WTC on 911), Boston lost its immunity and sense of safety. Boston became militarized and the police were the celebrated heroes.
 

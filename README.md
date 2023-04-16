@@ -6,7 +6,7 @@ April 16
 
 Tomorrow will be a very busy day at Castillo Vargo.
 
-Not only will our road be blocked off so that the marathon run safely in fron of us, we also need to get our guests into town--one (Julia) by 7:30 so that she can take the bus 26.2 miles to Hopkington to run the race and the second (Jamie) into town after Julia runs by our house so that Jamie can meet Julia somwehere near the finish line.  Julia's sister-in-law is also ruuning the marathon and her accompanying 5 or 6 people might spend some time with us as well.
+Not only will our road be blocked off so that the marathon can be run safely in front of us, we also need to get our guests into town--one (Julia) by 7:30 so that she can take the bus 26.2 miles to Hopkington to run the race and the second (Jamie) into town after Julia runs by our house so that Jamie can meet Julia somwehere near the finish line.  Julia's sister-in-law is also ruuning the marathon and her accompanying 5 or 6 people might spend some time with us as well.
 
 About 30,000 people will run the marathon, including the likely first place male (named, I think Ochobe) who will probably run it in just over 2 hours.  One of his goals is to run a marathon in under 2 hours but Julia, who is ontop of these things, doesnt think this will happen tomorrow  Although the temperature should be conducive, it will probably rain tomorrow which will likely slow ir down. i think Ochobe has a great expression when asked what his nwxtvrunning goal: "I only chase one rabbit at a time."   There's a lesson there for us all.
 

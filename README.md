@@ -16,6 +16,8 @@ About 30,000 people will run the marathon, including the likely first place male
 
 ![image](https://user-images.githubusercontent.com/128755897/232347215-e6c627ea-acaa-41c4-9890-862b396df1c5.jpeg)
 
+Rest in peace, sweet doggies.  Thank you for your faithful service.
+
 
 It is mildly interesting to me how we clump to simplify things.  It should really be called 'The Hopkington to Boston (by way of Newton) Marathon," but no one does.
 

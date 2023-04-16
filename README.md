@@ -6,7 +6,7 @@ April 16
 
 Tomorrow will be a very busy day at Castillo Vargo.
 
-Not only will our road be blocked off so that the marathon can be run safely in front of us, we also need to get our guests into town--one (Julia) by 7:30 so that she can take the bus 26.2 miles to Hopkington to run the race and the second (Jamie) into town after Julia runs by our house so that Jamie can meet Julia somewhere near the finish line.  Julia's sister-in-law is also ruuning the marathon and her accompanying 5 or 6 people might spend some time with us as well.
+Not only will our road be blocked off so that the marathon can be run safely in front of us, we also need to get our guests into town--one (Julia) by 7:30 so that she can take the bus 26.2 miles to Hopkington to run the race and the second (Jamie) into town after Julia runs by our house so that Jamie can meet Julia somewhere near the finish line.  Julia's sister-in-law is also running the marathon and her accompanying 5 or 6 people might spend some time with us as well.
 
 Julia and Jamie are both professors at the University of Regina (actually rhymes with vagina).  Julia is on staff in kinesiology and below is a link to her discussing this run:
 

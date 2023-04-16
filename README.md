@@ -12,7 +12,10 @@ Julia and Jamie are both professors at the University of Regina (actually rhymes
 
 https://youtu.be/BN5eQ0w7KNE
 
-About 30,000 people will run the marathon, including the likely first place male (named, I think Kipchoge) who will probably run it in just over 2 hours.  One of his goals is to run a marathon in under 2 hours but Julia, who is on top of these things, doesnt think this will happen tomorrow  Although the temperature should be conducive, it will probably rain tomorrow which will likely slow it down. I think Kipchoge has a great expression when asked what his next running goal: "I only chase one rabbit at a time."   There's a lesson there for us all.  There was also an official marathon dog, a golden retriever named Spencer who went viral in 2018 when a video of him at the side of the road with marathon flags in his mouth.  Spencer died a few months ago and there have been memorials for him this year, too.  Here is a picture of Spencer (and his sister Penny, who died even more recently):
+About 30,000 people will run the marathon, including the likely first place male (named, I think Kipchoge) who will probably run it in just over 2 hours.  One of his goals is to run a marathon in under 2 hours but Julia, who is on top of these things, doesn't think this will happen tomorrow.  Although the temperature should be conducive, it will probably rain tomorrow which will likely slow it down. 
+I think Kipchoge has a great expression when asked what his next running goal: "I only chase one rabbit at a time."   There's a lesson there for us all.  
+
+There was also an official marathon dog, a golden retriever named Spencer who went viral in 2018 due to a video of him at the side of the road with marathon flags in his mouth.  Spencer died a few months ago and there have been memorials for him this year, too.  Here is a picture of Spencer (and his sister Penny, who died even more recently):
 
 ![image](https://user-images.githubusercontent.com/128755897/232347215-e6c627ea-acaa-41c4-9890-862b396df1c5.jpeg)
 

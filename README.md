@@ -1,6 +1,20 @@
 # DVwords-WeekenStrung©
 PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.  I intend to not reveal specific embarassing intimacies of anyone so some of this will be generalized, anonymized and/oraltered for effect.
 
+
+April 16
+
+Tomorrow will be a very busy day at Castillo Vargo.
+
+Not only will our road be blocked off so that the marathon run safely in fron of us, we also need to get our guests into town--one (Julia) by 7:30 so that she can take the bus 26.2 miles to Hopkington to run the race and the second (Jamie) into town after Julia runs by our house so that Jamie can meet Julia somwehere near the finish line.  Julia's sister-in-law is also ruuning the marathon and her accompanying 5 or 6 people might spend some time with us as well.
+
+About 30,000 people will run the marathon, including the likely first place male (named, I think Ochobe) who will probably run it in just over 2 hours.  One of his goals is to run a marathon in under 2 hours but Julia, who is ontop of these things, doesnt think this will happen tomorrow  Although the temperature should be conducive, it will probably rain tomorrow which will likely slow ir down. i think Ochobe has a great expression when asked what his nwxtvrunning goal: "I only chase one rabbit at a time."   There's a lesson there for us all.
+
+It is mildly interesting to me how we clump to simplify things.  it should really be called 'The Hopkington to Boston (by way of Newton) Marathon," but no one does.
+
+i hope it is a great, safe and successful day for everyone.
+
+
 April 15
 
 Today is the 10th anniversary of the Boston Marathon Bombing. Win, Margie and I lived in the Boston area when that happened and it was a terrifying, unreal week. Margie had been at the site of the first bomb the day before it went off and Boston was essentially on lockdown (sheltering in place) all week. I was concerned about Win because I didn't at first know where he was. He kindly fairly quickly confirmed he was OK, which is a thoughtfulness I hope people generally do.  

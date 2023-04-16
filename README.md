@@ -12,7 +12,7 @@ Julia and Jamie are both professors at the University of Regina (actually rhymes
 
 https://youtu.be/BN5eQ0w7KNE
 
-About 30,000 people will run the marathon, including the likely first place male (named, I think Kipchoge) who will probably run it in just over 2 hours.  One of his goals is to run a marathon in under 2 hours but Julia, who is ontop of these things, doesnt think this will happen tomorrow  Although the temperature should be conducive, it will probably rain tomorrow which will likely slow ir down. i think Kipchoge has a great expression when asked what his next running goal: "I only chase one rabbit at a time."   There's a lesson there for us all.
+About 30,000 people will run the marathon, including the likely first place male (named, I think Kipchoge) who will probably run it in just over 2 hours.  One of his goals is to run a marathon in under 2 hours but Julia, who is on top of these things, doesnt think this will happen tomorrow  Although the temperature should be conducive, it will probably rain tomorrow which will likely slow ir down. i think Kipchoge has a great expression when asked what his next running goal: "I only chase one rabbit at a time."   There's a lesson there for us all.
 
 It is mildly interesting to me how we clump to simplify things.  It should really be called 'The Hopkington to Boston (by way of Newton) Marathon," but no one does.
 

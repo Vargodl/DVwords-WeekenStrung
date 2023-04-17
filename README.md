@@ -2,6 +2,24 @@
 PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.  I intend to not reveal specific embarassing intimacies of anyone so some of this will be generalized, anonymized and/oraltered for effect.
 
 
+April 17
+
+The The Hopkington to Boston (by way of Newton) Marathon is practically done for us.  Julia recently finished ~9111th in under 3 hours and 20 minutes--which was her goal.
+
+It was a cool rainy day and before the race was run, it was described as good conditions to run.  After the race they, the psyche out is done and the talk is now how the runners ran well DESPITE the poor weather conditions.
+
+Kenyans won both the male and female races.  Kipchoge though did not do as well as everyone thought--coning in sixth instead of first.
+
+Overall there was a long stream of runners who went by and even at mile 19 aound us, they almost universally looked like they were keeping goodtime and running without too much difficulty.
+
+Hopefully next year, Win and Alex can be with is to enjoy the event.  
+
+Other than Julia and Jamie, we had no other visitors.  Margie has been shuttling them into Boston for the race, which is complicated a bit by our road being closed for the run.  She has been, as she usually is, a wonderful, attentive, host.  Anyone staying here is lucky...and spoiled.
+
+![image](https://user-images.githubusercontent.com/128755897/232585469-155e366b-449d-4b6d-997f-d273675ee391.jpeg)
+
+
+
 April 16
 
 Tomorrow will be a very busy day at Castillo Vargo.

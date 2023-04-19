@@ -1,6 +1,46 @@
 # DVwords-WeekenStrung©
-PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023.  I intend to not reveal specific embarassing intimacies of anyone so some of this will be generalized, anonymized and/oraltered for effect.
+PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023. 
 
+I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonoymized and/or altered for effect to protect the innocent and mock the guilty.
+
+
+April 18
+
+We are the tops…
+…of dandelions.
+
+The unexamined life May not be worth living (according to Socrates) but I must add that the examined life isn’t necessarily the be all and end all, either. 
+
+Pfizer is the first pharma company to post >$100BILLION in revenue (last year)!!!  Mostly, admittedly due to wise and successful investments in COVID treatments, but still!!!  Even though I worked for Pfizer and it is a good company, somehow we have to reign in medical costs.  On a flip side of sorts, almost 1 million US nurses will leave nursing by 2027.  That isn't sustainable either.
+
+Do I contradict myself?  Very well then, I contradict myself. 
+Not life alone, death, many deaths I’ll sing, 
+(Walt Whitman)
+
+Me…thoughtful thoughter of dutiful daughter, 
+turning…
+to live with animals.  
+
+
+A Cherokee Folktale  
+
+An old Cherokee told his grandson, “My son, there is a battle between two wolves inside us all.”
+
+“One is Evil. It is anger, jealousy, greed, resentment, inferiority, lies and ego. 
+
+The other is Good. It is joy, peace,love, hope, humility, kindness, empathy, and truth.”
+
+The boy thought about it, and asked, “Grandfather, which wolf wins?”
+
+The old man quietly replied, “The one you feed.”
+
+
+
+This day I altered the disclaimer from "I intend to not reveal specific embarassing intimacies of anyone so some of this will be generalized, anonymized and/oraltered for effect."
+--to:
+"I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationship,s so some of this will be generalized, anonymized and/or altered for effect to ptrtect the innocent and mock the guilty."
+
+A la Caravaggio, who I’m learning about, who may or may not have insulted a rival, Cesari, by a painting of his with a dwarf sticking its tongue out at Cesari's painting.
 
 April 17
 

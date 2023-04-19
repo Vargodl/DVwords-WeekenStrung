@@ -14,14 +14,16 @@ The unexamined life May not be worth living (according to Socrates) but I must a
 Pfizer is the first pharma company to post >$100BILLION in revenue (last year)!!!  Mostly, admittedly due to wise and successful investments in COVID treatments, but still!!!  Even though I worked for Pfizer and it is a good company, somehow we have to reign in medical costs.  On a flip side of sorts, almost 1 million US nurses will leave nursing by 2027.  That isn't sustainable either.
 
 Do I contradict myself?  Very well then, I contradict myself. 
+
 Not life alone, death, many deaths I’ll sing, 
 (Walt Whitman)
 
 Me…thoughtful thoughter of dutiful daughter, 
+
 turning…
 to live with animals.  
 
-
+----------
 
 
    A Cherokee Folktale  

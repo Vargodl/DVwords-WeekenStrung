@@ -24,7 +24,7 @@ to live with animals.
 
 
 
-A Cherokee Folktale  
+   A Cherokee Folktale  
 
 An old Cherokee told his grandson, “My son, there is a battle between two wolves inside us all.”
 

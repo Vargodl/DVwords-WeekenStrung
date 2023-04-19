@@ -9,9 +9,11 @@ April 18
 We are the tops…
 …of dandelions.
 
-The unexamined life May not be worth living (according to Socrates) but I must add that the examined life isn’t necessarily the be all and end all, either. 
+The unexamined life may not be worth living (according to Socrates) 
+but I must add that the examined life isn’t necessarily the be all and end all, either. 
 
 Pfizer is the first pharma company to post >$100BILLION in revenue (last year)!!!  Mostly, admittedly due to wise and successful investments in COVID treatments, but still!!!  Even though I worked for Pfizer and it is a good company, somehow we have to reign in medical costs.  On a flip side of sorts, almost 1 million US nurses will leave nursing by 2027.  That isn't sustainable either.
+
 
 Do I contradict myself?  Very well then, I contradict myself. 
 
@@ -38,7 +40,7 @@ The boy thought about it, and asked, “Grandfather, which wolf wins?”
 
 The old man quietly replied, “The one you feed.”
 
-
+------
 
 NOTE:
 This day I altered the disclaimer from "I intend to not reveal specific embarassing intimacies of anyone so some of this will be generalized, anonymized and/oraltered for effect."

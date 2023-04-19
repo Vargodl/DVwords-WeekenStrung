@@ -23,6 +23,7 @@ to live with animals.
 
 
 
+
 A Cherokee Folktale  
 
 An old Cherokee told his grandson, “My son, there is a battle between two wolves inside us all.”
@@ -37,6 +38,7 @@ The old man quietly replied, “The one you feed.”
 
 
 
+NOTE:
 This day I altered the disclaimer from "I intend to not reveal specific embarassing intimacies of anyone so some of this will be generalized, anonymized and/oraltered for effect."
 --to:
 "I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationship,s so some of this will be generalized, anonymized and/or altered for effect to ptrtect the innocent and mock the guilty."

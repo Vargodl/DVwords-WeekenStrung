@@ -1,7 +1,7 @@
 # DVwords-WeekenStrung©
 PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023. 
 
-I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonoymized and/or altered for effect to protect the innocent and mock the guilty.
+I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
 
 
 April 18
@@ -41,7 +41,7 @@ The old man quietly replied, “The one you feed.”
 NOTE:
 This day I altered the disclaimer from "I intend to not reveal specific embarassing intimacies of anyone so some of this will be generalized, anonymized and/oraltered for effect."
 --to:
-"I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationship,s so some of this will be generalized, anonymized and/or altered for effect to ptrtect the innocent and mock the guilty."
+"I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty."
 
 A la Caravaggio, who I’m learning about, who may or may not have insulted a rival, Cesari, by a painting of his with a dwarf sticking its tongue out at Cesari's painting.
 

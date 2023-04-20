@@ -10,7 +10,7 @@ Wouch!  "Wouch" is my neologism for the day to represent an initially surprising
 
 What a surprisingly painful situation that is, crazy money which will ultimately be paid by taxpayers.
 
-Today was another good day.  Our guests left, hopefully to return to Regina--a possibility but not definite due to up to 30 cm or more of snow. It was a special, great trip--marathon, sports, touring, chats, including about James Joyce.
+Otherwise, today was another very good day.  Our guests left, hopefully to return to Regina--a possibility but not definite due to up to 30 cm or more of snow. It was a special, great trip--marathon, sports, touring, chats, including about James Joyce.
 
 On top of that, we had another fine VargoLADZ stream, with bhelgator and Donnie joining us.  Topics included the "binary dichotomy" of binary vs non-binary, a bit on gender pronouns and sone MVP discussion (mine being about the power of social connectedness).  A lot of pleasant and provocative banter was shared and volleyed across the virtual aisles and nets.
 

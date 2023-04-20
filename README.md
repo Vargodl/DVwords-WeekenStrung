@@ -15,6 +15,7 @@ Margie took Julie and Jaime (just confirmed the spelling today) to Cambridge for
 I just discovered this interesting book today:
 
 Tyranny from Plato to Trump: Fools, Sycophants, and Citizens by Andrew Fiala
+
 Power grabs, partisan stand-offs, propaganda, and riots make for tantalizing fiction, but what do we do when that drama becomes a reality all around us? For a country founded as an escape from British tyranny, the United States seems to have devolved into a land where tyrants rise to power, sycophants blindly follow, and the entire nation suffers.As ancient Greek philosophers warned us, chaotic tragedy unfolds in the absence of reason, and the only cure is a return to wisdom and virtue. America’s founding fathers knew this lesson all too well and dreamed of an enlightened citizenry guided by better-than-ideological dictators. Using contemporary events to illuminate universal human weaknesses, Andrew Fiala charts the perennial history of tyrannical takeovers and the masses who support them and ultimately suffer under their rule. Ultimately, Fiala also points to a solution. Knowing the cyclical nature of tyranny, we can build safeguards against our worst inclinations and keep alive the freedoms our founding fathers envisioned for this.
 
 

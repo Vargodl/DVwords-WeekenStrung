@@ -6,6 +6,10 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 April 19
 
+Wouch!  "Wouch" is my neologism for the day to represent an initially surprising event that is either mostly significantly painful or so obviously painful to someone else that you sense the pain which quickly overtakes and supercedes the surprise.  I created this term today when I discovered that the latest interim CEO of SEAGEN earned about $1 million per day. SEAGEN was just bought by Pfizer, who I think significantly overpaid but as mentioned yesterday, they are rolling in COVID money.
+
+What a surprisingly painful situation that is, crazy money which will ultimately be paid by taxpayers.
+
 Today was another good day.  Our guests left, hopefully to return to Regina--a possibility but not definite due to up to 30 cm or more of snow. It was a special, great trip--marathon, sports, touring, chats, including about James Joyce.
 
 On top of that, we had another fine VargoLADZ stream, with bhelgator and Donnie joining us.  Topics included the "binary dichotomy" of binary vs non-binary, a bit on gender pronouns and sone MVP discussion (mine being about the power of social connectedness).  A lot of pleasant and provocative banter was shared and volleyed across the virtual aisles and nets.

@@ -10,7 +10,7 @@ Today was another good day.  Our guests left, hopefully to return to Regina--a p
 
 On top of that, we had another fine VargoLADZ stream, with bhelgator and Donnie joining us.  Topics included the "binary dichotomy" of binary vs non-binary, a bit on gender pronouns and sone MVP discussion (mine being about the power of social connectedness).  A lot of pleasant and provocative banter was shared and volleyed across the virtual aisles and nets.
 
-Margie took Julie and Jaime (jus tconfirmed the spelling today) to Cambridge for sightseeing, shopping and luncheon (after a morning of lemon ricotta pancakes).
+Margie took Julie and Jaime (just confirmed the spelling today) to Cambridge for sightseeing, shopping and luncheon (after a morning of lemon ricotta pancakes).
 
 I just discovered this interesting book today:
 

@@ -8,7 +8,7 @@ April 19
 
 Today was another good day.  Our guests left, hopefully to return to Regina--a possibility but not definite due to up to 30 cm or more of snow. It was a special, great trip--marathon, sports, touring, chats, including about James Joyce.
 
-On top of that, we had another fine VargoLADZ stream, with bhelgator and Donnie joining us.  Topics included the "binary dichotomy" of binary vs non-binary, a bit on gender pronouns and sone MVP discussion (mine being about the power of social connectedness).
+On top of that, we had another fine VargoLADZ stream, with bhelgator and Donnie joining us.  Topics included the "binary dichotomy" of binary vs non-binary, a bit on gender pronouns and sone MVP discussion (mine being about the power of social connectedness).  A lot of pleasant and provocative banter was shared and volleyed across the virtual aisles and nets.
 
 Margie took Julie and Jaime (jus tconfirmed the spelling today) to Cambridge for sightseeing, shopping and luncheon (after a morning of lemon ricotta pancakes).
 

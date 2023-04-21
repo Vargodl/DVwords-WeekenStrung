@@ -17,6 +17,12 @@ Like many other oppressed people, NDNs were oppressed and surpressed, which is b
 
 With no offense meant, and perhaps overgenerLizing, Canada is like the Liverpool of North America in that they augment the english with the longg 'o' (oo) sound.
 
+Completed today:
+![image](https://user-images.githubusercontent.com/128755897/233530767-99635a51-61f7-451c-9be5-699e2c049dac.jpeg)
+highlighted inset:
+![image](https://user-images.githubusercontent.com/128755897/233530911-228c8c38-8666-42c5-811d-e8e2af0ab6ea.jpeg)
+
+
 April 19
 
 Wouch!  "Wouch" is my neologism for the day to represent an initially surprising event that is either mostly significantly painful or so obviously painful to someone else that you sense the pain which quickly overtakes and supercedes the surprise.  I created this term today when I discovered that the latest interim CEO of SEAGEN earned about $1 million per day. SEAGEN was just bought by Pfizer, who I think significantly overpaid but as mentioned yesterday, they are rolling in COVID money.

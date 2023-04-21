@@ -3,6 +3,13 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
 
+April 20
+
+Billy-Ray Belcourt in  A HISTORY OF MY BRIEF BODY wrote a more interesting kind of disclaimer like I wrote above: 
+
+If I were to rank my aesthetic concerns, ambiguity would come before veracity. As such, some names and identifying features have been altered. What's more, I marshal the forces of poetry and theory to weave not a linear story, which "memoir" typically denotes, but rather a series of stories and analytical scenes into a composite that exceeds the boundaries of my individual life.
+
+He is an NDN, a gay First Nation person and excellent writer who I discovered because our friends, Les Canadiennes, left ua a few books including the above mentioned.  So they have disseminated/transsemminated some of their culture and kindnesses.
 
 April 19
 

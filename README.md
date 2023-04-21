@@ -11,7 +11,7 @@ If I were to rank my aesthetic concerns, ambiguity would come before veracity. A
 
 He is an NDN, a gay First Nation person and excellent writer who I discovered because our friends, Les Canadiennes, left ua a few books including the above mentioned.  So they have disseminated/transsemminated some of their culture and kindnesses.
 
-NOTE: NDN is clever onomatopeaic shorthand spelling for Indian, a term that some Native Americans in the United States and some First Nations peoples in Canada use to refer to themselves. Unlike in the US, where we now use the term "nNtive American," in Canada, they use  "First Nations."
+NOTE: NDN is clever onomatopeaic shorthand spelling for Indian, a term that some Native Americans in the United States and some First Nations peoples in Canada use to refer to themselves. 
 
 Like many other oppressed people, NDNs were oppressed and surpressed, which is becoming increasingly recognized and explored.
 

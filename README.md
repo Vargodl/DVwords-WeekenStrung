@@ -11,6 +11,12 @@ If I were to rank my aesthetic concerns, ambiguity would come before veracity. A
 
 He is an NDN, a gay First Nation person and excellent writer who I discovered because our friends, Les Canadiennes, left ua a few books including the above mentioned.  So they have disseminated/transsemminated some of their culture and kindnesses.
 
+NOTE: NDN is clever onomatopeaic shorthand spelling for Indian, a term that some Native Americans in the United States and some First Nations peoples in Canada use to refer to themselves. Unlike in the US, where we now use the term "nNtive American," in Canada, they use  "First Nations."
+
+Like many other oppressed people, NDNs were oppressed and surpressed, which is becoming increasingly recognized and explored.
+
+With no offense meant, and perhaps overgenerLizing, Canada is like the Liverpool of North America in that they augment the english with the longg 'o' (oo) sound.
+
 April 19
 
 Wouch!  "Wouch" is my neologism for the day to represent an initially surprising event that is either mostly significantly painful or so obviously painful to someone else that you sense the pain which quickly overtakes and supercedes the surprise.  I created this term today when I discovered that the latest interim CEO of SEAGEN earned about $1 million per day. SEAGEN was just bought by Pfizer, who I think significantly overpaid but as mentioned yesterday, they are rolling in COVID money.

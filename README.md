@@ -8,7 +8,7 @@ April 21
 
 There is so little I actually know, though I am learning a lot every day. 
 
-I had one brother, Jim, who was the youngest of the 4 of us sibs.  We were 13 months apart (separated by a month longer than what I think is called ‘Irish Twins’).  We were very close best friend until I went to high school and then other places without our co-location as I slowly continued, admittedly unintentionally, to hive off from him—and we slowly differentiated. Enlisting in the navy was probably the most significant initial separation  and differentiation.  We never really reconnected anywhere near the closeness of our youth.
+I had one brother, Jim, who was the youngest of the 4 of us sibs.  We were 13 months apart (separated by a month longer than what I think is called ‘Irish Twins’).  We were very close best friends until I went to high school and then other places without our co-location as I slowly continued, admittedly unintentionally, to hive off from him—and we slowly differentiated. Enlisting in the navy was probably the most significant initial separation  and differentiation.  We never really reconnected anywhere near the closeness of our youth.
 
 Amended From BRB: 
 Like most close in age brothers, Jim and I were, almost twin-like, inseparable. At times, however, I strain to call up shared memories.

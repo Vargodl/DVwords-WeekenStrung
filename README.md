@@ -7,7 +7,7 @@ April 22
 
 UrthDay
 
-Some words are explosive in the pregnant cauldron of meaning, fissioning AND fusing.  Kindle for brainfires.
+Some words are explosive in the pregnant maelstrom of meaning, fissioning AND fusing.  Kindle for brainfires.
 
 Brotherson
 

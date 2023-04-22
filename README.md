@@ -3,7 +3,28 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
 
-April 20
+
+April 21
+
+There is so little I actually know, though I am learning a lot every day. 
+
+I had one brother, Jim, who was the youngest of the 4 of us sibs.  We were 13 months apart (separated by a month longer than what I think is called ‘Irish Twins’).  We were very close best friend until I went to high school and then other places without our co-location as I slowly continued, admittedly unintentionally, to hive off from him—and we slowly differentiated. Enlisting in the navy was probably the most significant initial separation  and differentiation.  We never really reconnected anywhere near the closeness of our youth.
+
+Amended From BRB: 
+Like most close in age brothers, Jim and I were, almost twin-like, inseparable. At times, however, I strain to call up shared memories.
+I suspect this is because our senses of selfhood were intertwined, that we were bound up in a "you" and an "us" and a "we" that hardened into a singular entity over early time that devolved into cleaved separateness united only by intimately desired reconnection which could never be complete. What I do know is that many, relatives and otherwise, made us out to be opposites, good and bad, feminine and masculine, academic and unruly. Perhaps they were simply pointing out the parts of us that bifurcated, in opposition to our drive to enact a sameness that upset liberal norms of individuation. Maybe its a mere psychosocial fact that the lives of close sibs are labyrinthine, like any other social form. 
+
+Nevertheless, Jim and I were collaborators and accomplices, best friends and sometimes rivals. Which is to say that we too were key architects of the world of care that brought us into being.
+
+Most sadly, he died almost 2 years ago, too young to be that old after our re-annealing of holiday gobble greetings but before our adequate reintegration.
+
+"Just to be is a blessing. Just to live is holy.”  Rabbi Abraham Heschel
+
+“While there's life, there's hope.”  Marcus Tullius Cicero
+
+
+
+April 20  (420)
 
 Billy-Ray Belcourt in  A HISTORY OF MY BRIEF BODY wrote a more interesting kind of disclaimer like I wrote above: 
 

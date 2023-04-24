@@ -3,6 +3,31 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
 
+
+
+April 2323
+
+ThreeSibMammaries:
+
+As mentioned, I was the third of 4 sibs, the youngest (our baby brother, Jim) who died suddenly about 2 years ago. 
+
+Jim and I were very close growing up; partners in crime and creative destruction.  For Christmas one year, we received these really cool electric metal trolleys (before things were ‘cheap’ and ‘made in Japan’) that ran on a flexible plastic track that you could put where you wanted. You turned them. Placed them on the track and they flashed lights and whistled while they went on the track. When they got to the end of the track, they automatically reversed directions back and forth. We ‘tied up’ the small hallway in our house, tying the doors to bedrooms, bathroom and kitchen. Soon thereafter one of them broke and we took it apart to, unsuccessfully, try to fix it—never able to use them again. We also got young boys tool kits with small hammers, pliers and screwdrivers. (We usually each got the same gifts with something for us individually as well.).  We hammered nails and screwed screws into the drawers of our parents small but quaint dresser (which had glass shelves in the middle between the two small banks of drawers with a cool skeleton key hole shaped mirror on the back (like a cartoon of vanity). Our parents were upset but forgiving, living for years with the dresser that we had marred. 
+
+The younger of my two sisters (Bonnie), who was about 2 years older than me, and I were fairly close. She was older than me by years and some of those things which age differently by gender (dating, for example; her boyfriend Chuck P, who was very easy to really like)).  She and I were bookend years in high school. She sort of advised and protected me. She is also the main reason that I didn’t attend the parochial high school because she denigrated it compared to the local public high school from which I graduated 50 years ago this summer. Interestingly, she also left our parochial grade school at grade 6 to finish in the local public school (Lafayette) whereas Jim and I spent all 8 years at St Adalbert, the same grade school that my mom attended. I remember Jim and I got Bonnie ‘talked to’ by our dad when once she got angry with us and shockingly shouted up the stairs that we were “fucked up fuckers.”   For some strange reason, Bonnie also told me (verbally, procedurally)  how to use toilet paper for butt wiping post poop…take two connected, fold, wipe with one side, fold in half, wipe, fold, wipe, fold…until nothing left, break through or dirty fingers.
+
+When our eldest and first sister, Jeri was probably around 13-14 or so, I was sitting next to her on the couch. She was wearing a turtleneck and opened the neck to look at her pert, pubertal boobs.  Not really thinking or expecting anything, I also stuck my head in her turtleneck and saw her perkiness. I was pre-sacramentalled but of course I knew about sin (which I thought I was committing because of my awkward ogling). Knowing about penance for sins but really knowing prayers, I did the only thing I could think of: multiple repetitive sign’s ‘o the cross (SOTC) as penance—which is funny because the SORC is really a pre-prayer, kind of like saying “I’m about to start (and also finish) praying. So I was not even really praying…really penancing. Ironic!
+
+I also, later, very hornily asked my mom what a vagina was. She embarrassedly and awkwardly responded “It’s like a small front butt.”
+
+…a small front butt!
+
+Here’s to the delayed recognition of the things we blame for happening to us which, in actuality, happened for us. 
+
+BRB Sometimes I'm a shoreline the water of memory drags its palm across.
+
+Every stress leaves an indelible scar, and the organism pays for its survival after a stressful situation by becoming a little older.
+—Hans Selye
+
 April 22
 
 UrthDay

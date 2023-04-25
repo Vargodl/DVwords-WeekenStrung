@@ -25,6 +25,8 @@ You can be anything—or at least continue in that direction. Sadly, there isn�
 
 You are the source of your own happiness…or sadness. 
 
+Whether you think you can or think you can’t, you’re right. – Henry Ford © Source: https://www.quotespedia.org/authors/h/henry-ford/whether-you-think-you-can-or-think-you-cant-youre-right-henry-ford/
+
 
 April 2323
 

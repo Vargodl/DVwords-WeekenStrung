@@ -8,7 +8,7 @@ Apr 24
 
 A bit too blandly and with lack of reference to the symmetric (as well as, in fact, the reflexive) property, Why aren’t women equal?  Women aren’t equal but they ARE getting 'equal-er.'
 
-Siblings, like spouses, are occasionally natural rivals. No matter how kindred, no one is identical and souls and stars aren’t always aligned. I know longer have a brother but my sisters still do (in me).
+Siblings, like spouses, are occasionally natural rivals. No matter how kindred, no one is identical and souls and stars aren’t always aligned. I no longer have a brother but my sisters still do (in me).
 
 A bit more about my early relationship with my closer-in-age sister, Bonnie (who, as mentioned yesterday, instructed me in toilet paper procedures).  Bon was born slightly more than 2 years before me.  She was the apple of my grandfather’s (dziadzia, my mom’s dad as my dad’s father had died in an industrial accident 20 years earlier) eye, supposedly because she was a mała busia ([mow-ee boo-shah], or young person who reminded him of his wife, my grandmother).  When I was born, she was feeling demoted from being the baby of the family.  Dziadzia asked her how she liked her baby brother and she asked him to take me back to the hospital he had to backtrack and convince her to give me a chance.  
 

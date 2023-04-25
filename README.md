@@ -4,6 +4,23 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
 
 
+Apr 24
+
+A bit too blandly and with lack of reference to the symmetric (as well, in fact, the reflexive) property, Why aren’t women equal?  Women aren’t equal but they ARE getting equal-er. 
+
+Siblings, like spouses, are occasionally natural rivals. No matter how kindred, no one is identical and souls and stars aren’t always aligned. I know longer have a brother but my sisters still do (in me).
+
+A bit more about my early relationship with my closer-in-age sister, Bonnie (who instructed me in toilet paper procedures).  Bon was born slightly more than 2 years before me.  She was the apple of my grandfather’s (dziadzia, my mom’s dad as my dad’s father had died in an industrial accident 20 years earlier) eye, supposedly because she was a mała busia ([mow-ee boo-shah], or young person who reminded him of his wife, my grandmother).  When I was born, she was feeling demoted from being the baby of the family.  Dziadzia asked her how she liked her baby brother and she asked him to take me back to the hospital he had to backtrack and convince her to give me a chance.  She did sort of give me a chance.  She did, however, overdose me on St. Joseph’s aspirin for children one summer.  (Not saying this was intentional; as I doubt it was.). I liked the orange taste and one morning she woke me up early and, while I was sitting on a bathroom stool, she fed me about 2 bottles of aspirin.  (This was before Reye’s Syndrome associated with aspirin in children was identified.). Not quite a Prospero and Caliban situation. Fortunately (for me at least), we were discovered and my parents forced me to stay awake, walking in the front lawn, until I got to the ER and had my stomach pumped out. It is conceivable that I could have died then and there and so I personally experienced how easy it would be that there could have been no alternate history which was most of my life. Life is precious and fragile—and I continue to be very lucky (even if, perhaps, luck includes the luck to realize that if you seek it, you might find it (luck, that is)…in other words, luck may merely be a state of mind.
+
+Interestingly, when she instructed the process for tush-wiping, she never told me to wipe front to back. Was this before she knew?  Did mom ever teach her that?
+
+Women tend to use more tp than men because they also wipe their ‘small front butts’ after peeing.  When a person feels psychologically ‘dirty,’ does s/he use more tp? Are the two related?  I think not. 
+
+You can be anything—or at least continue in that direction. Sadly, there isn’t enough time to do everything, especially because the process and journey to anywhere takes time. 
+
+
+You are the source of your own happiness…or sadness. 
+
 
 April 2323
 

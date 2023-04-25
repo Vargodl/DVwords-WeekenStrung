@@ -6,7 +6,7 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 Apr 24
 
-A bit too blandly and with lack of reference to the symmetric (as well, in fact, the reflexive) property, Why aren’t women equal?  Women aren’t equal but they ARE getting equal-er. 
+A bit too blandly and with lack of reference to the symmetric (as well as, in fact, the reflexive) property, Why aren’t women equal?  Women aren’t equal but they ARE getting 'equal-er.'
 
 Siblings, like spouses, are occasionally natural rivals. No matter how kindred, no one is identical and souls and stars aren’t always aligned. I know longer have a brother but my sisters still do (in me).
 

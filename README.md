@@ -10,7 +10,7 @@ A few disconnected thought provocatives, most by me, some by others:
 
 Derek Sivers: We’re not actually bound to social norms. We don’t need permission. We don’t need to please everyone.
 
-Yesterday was the Red Wedding episode for cable news hosts, Don Lemon and Tucker Carlson respectively. Both were fired from their major news networks. 
+Yesterday was the Red Wedding episode for cable news hosts, Don Lemon and Tucker Carlson. Both were fired from their major news networks. 
 
 Into everyone’s life a little rain must fall but when it’s your drizzle, it seems gale-force and prolonged. Thunderstorms of the spirit. Maelstroms of the soul. 
 

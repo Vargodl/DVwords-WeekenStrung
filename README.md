@@ -4,6 +4,35 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
 
 
+April 25
+
+A few disconnected thought provocatives, most by me, some by others:
+
+Derek Sivers: We’re not actually bound to social norms. We don’t need permission. We don’t need to please everyone.
+
+Yesterday was the Red Wedding episode for cable news hosts, Don Lemon and Tucker Carlson respectively. Both were fired from their major news networks. 
+
+Into everyone’s life a little rain must fall but when it’s your drizzle, it seems gale-force and prolonged. Thunderstorms of the spirit. Maelstroms of the soul. 
+
+Books are rocketships to places, ideas and dreamscapes (inner and outer, far and wide, past, present and future). Words are the wings on which we fly. I am greatly enjoying recollection and the words we ride. 
+
+When you begin to unconsciously (or worse) think you are more important than your message, you have begun to be dangerous.
+
+There is nothing wrong and everything right with enjoying non-zero sum (NZS) life.
+
+Rather than throwing everything out and starting afresh (which is difficultly impossible anyway), better to take stock and see what is workable enough to remain..at least for the being time. 
+
+Who owns the future?
+
+There will never be another now –
+I’ll make the most of today.
+There will never be another me –
+I’ll make the most of myself.
+Helen Keller
+
+VARGOLADZ tomorrow
+
+
 Apr 24
 
 A bit too blandly and with lack of reference to the symmetric (as well as, in fact, the reflexive) property, Why aren’t women equal?  Women aren’t equal but they ARE getting 'equal-er.'

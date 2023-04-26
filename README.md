@@ -12,9 +12,11 @@ Derek Sivers: We’re not actually bound to social norms. We don’t need permis
 
 Yesterday was the Red Wedding episode for cable news hosts, Don Lemon and Tucker Carlson. Both were fired from their major news networks. 
 
-Into everyone’s life a little rain must fall but when it’s your drizzle, it seems gale-force and prolonged. Thunderstorms of the spirit. Maelstroms of the soul. 
+Into everyone’s life a little rain must fall but when it’s your drizzle, it seems gale-force and prolonged. 
+There can be thunderstorms of the spirit, maelstroms of the soul. 
 
-Books are rocketships to places, ideas and dreamscapes (inner and outer, far and wide, past, present and future). Words are the wings on which we fly. I am greatly enjoying recollection and the words we ride. 
+Books are rocketships to places, ideas and dreamscapes (inner and outer, far and wide, past, present and future). 
+Words are the wings on which we fly. I am greatly enjoying collecting and recording the words we ride. 
 
 When you begin to unconsciously (or worse) think you are more important than your message, you have begun to be dangerous.
 
@@ -25,6 +27,7 @@ Rather than throwing everything out and starting afresh (which is difficultly im
 Who owns the future?
 
 
+
 There will never be another now –
 
 I’ll make the most of today.
@@ -33,8 +36,7 @@ There will never be another me –
 
 I’ll make the most of myself.
 
-
-Helen Keller
+by Helen Keller
 
 
 

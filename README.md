@@ -24,11 +24,19 @@ Rather than throwing everything out and starting afresh (which is difficultly im
 
 Who owns the future?
 
+
 There will never be another now –
+
 I’ll make the most of today.
+
 There will never be another me –
+
 I’ll make the most of myself.
+
+
 Helen Keller
+
+
 
 VARGOLADZ tomorrow
 

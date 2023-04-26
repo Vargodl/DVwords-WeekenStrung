@@ -12,7 +12,7 @@ Derek Sivers: We’re not actually bound to social norms. We don’t need permis
 
 Yesterday was the Red Wedding episode for cable news hosts, Don Lemon and Tucker Carlson. Both were fired from their major news networks. 
 
-The universe is larger today than it was yesterday, though probably less dense on a 'particles'/(cubic light-year).
+The universe is larger today than it was yesterday, though probably less dense on a 'particles'/(cubic light-year) basis.
 The same should be true tomorrow and many tomorrows yet to come.
 
 Similar to the confusing qualities and parameters of most probable God (including the mundane but curious contradition: is God so powerful that s/he can make something s/he can't lift?  More on this in a later day), the universe holds many many mysteries, the most basic being "is that all there is?" this doesn't seem to be the case because the universe is still growing.  But what (space) is the universe growing into?  If it is larger today than yesterday, where was that additional extra-yesterday's-universe space.  What is outside of the universe? how can it not be infinite? how CAN it be infinite?  Curved space doesnt account for this comfortably for me.

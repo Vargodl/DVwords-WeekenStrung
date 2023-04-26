@@ -40,6 +40,13 @@ by Helen Keller
 
 -----
 
+
+
+art piece to be submitted to a show this weekend: "Dunegrass" ~20 years old
+
+![image](https://user-images.githubusercontent.com/128755897/234454900-e7bd673a-fd16-40d3-9fe8-72066d492f8d.jpeg)
+
+
 VARGOLADZ tomorrow
 
 

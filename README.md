@@ -22,11 +22,11 @@ When you begin to unconsciously (or worse) think you are more important than you
 
 There is nothing wrong and everything right with enjoying non-zero sum (NZS) life.
 
-Rather than throwing everything out and starting afresh (which is difficultly impossible anyway), better to take stock and see what is workable enough to remain..at least for the being time. 
+Rather than throwing everything out and starting afresh (which is difficultly impossible anyway), better to take stock and see what is workable enough to retain..at least for the being time. 
 
 Who owns the future?
 
-
+-----
 
 There will never be another now –
 
@@ -38,7 +38,7 @@ I’ll make the most of myself.
 
 by Helen Keller
 
-
+-----
 
 VARGOLADZ tomorrow
 

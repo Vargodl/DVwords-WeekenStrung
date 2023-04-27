@@ -4,6 +4,10 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
 
 
+April 27
+
+Re: retirement, rather than taking 'another bite at the apple,' why not take a bite at a whole sweet new fruit (low-hanging? Cherry?) and gobble that up?
+
 April 26, the last day of the first month of my retirement.
 
 

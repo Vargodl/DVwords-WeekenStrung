@@ -49,6 +49,12 @@ Vargoladz was interesting and went well tonight. Alex was on a retreat and Win h
 
 Thank you Life, for being a wonderful and helpful colleague. Thank you very much to all the people that enrich it so much!
 
+Roobie (from rooibos, a red tea): ![image](https://user-images.githubusercontent.com/128755897/234760270-0c30caf7-4315-4876-9ffc-a456746d0f4a.jpeg)
+
+and our newest baby bunny: ![image](https://user-images.githubusercontent.com/128755897/234760356-c7466778-217a-4021-8447-521ea3aa2da5.jpeg)
+
+
+
 
 April 25
 

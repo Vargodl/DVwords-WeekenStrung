@@ -47,7 +47,7 @@ Question: in which of the following cities was I born?
 
 Vargoladz was interesting and went well tonight. Alex was on a retreat and Win had just finished his day job work. “Retreat”became a recurrent sub-MVP.
 
-Thank you Life, for being a wonderful and helpful colleague. Thank all the people that enrich it so much!
+Thank you Life, for being a wonderful and helpful colleague. Thank you very much to all the people that enrich it so much!
 
 
 April 25

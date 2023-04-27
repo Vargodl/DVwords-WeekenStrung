@@ -23,7 +23,7 @@ As someone wrote:  “If I were any better, I’d have to be twins!”
 
 In the past month, we have had a few events.  The one I am most pleased with was the surprise appreciation for Margie in NYC on April 1st at Emilio’s Balloto, thanks to Win’s help.  There was also a surprise for me on retirement day and several trips into the citIes of Boston/Cambridge, including one to our Galleries d’Orsay on Saturday for a Bruno Zupan reception.  
 
-Shefali Agarwal visited us today and it seems likely we will likely go to Paris mid June if we can arrange appropriate house sitting.
+Shefali Agarwal visited us today and it seems likely we will likely go to Paris sometime this summer if we can arrange appropriate house sitting.
 
 An author I’ve been reading revealed that his date of birth is the same of mine, interestingly in a passage about not believing in astrology but feeling more connected to someone of his interest when he learns they are of the same astral sign. He (the author) and I also, of course, have the same astral sign but that means little to me. Contrary to his view, having the same date of birth, is (to me) really an invisible lineation between us.  
 

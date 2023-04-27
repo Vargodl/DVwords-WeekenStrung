@@ -53,7 +53,9 @@ Roobie (from rooibos, a red tea): ![image](https://user-images.githubusercontent
 
 and our newest baby bunny--we'll probably call him "Skeeter" because he likes to scatter and run back and forth between our porch furniture and our porch cart: ![image](https://user-images.githubusercontent.com/128755897/234760356-c7466778-217a-4021-8447-521ea3aa2da5.jpeg)
 
+John Muir:
 
+When we contemplate the whole globe as one great dewdrop, striped and dotted with continents and islands, flying through space with other stars all singing and shining together as one, the whole universe appears as an infinite storm of beauty.
 
 
 April 25

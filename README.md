@@ -26,8 +26,7 @@ Shefali Agarwal visited us today and it seems likely we will likely go to Paris 
 
 An author I’ve been reading revealed that his date of birth is the same of mine, interestingly in a passage about not believing in astrology but feeling more connected to someone of his interest when he learns they are of the same astral sign. He (the author) and I also, of course, have the same astral sign but that means little to me. Contrary to his view, having the same date of birth, is (to me) really an invisible lineation between us.  
 
-I like to read interesting turns of phrases including seeming contradictions like “in praise of blame” and “ to live in a place without boundlessness”
-I like the end of statements to surprise and jar me by their non sequitur unexpectedness, out of place-ness, and counterintuitiveness… though not like a slap in the face or a plunge in an unexpectedly ice cold lake but more like my name whispered breathily and barely heard when no one is around or a subtle slight breath gust across but behind your ear in 3/4 pose. 
+I like to read interesting turns of phrases including seeming contradictions like “in praise of blame” and “ to live in a place without boundlessness.”  I like the end of statements to surprise and jar me by their non sequitur unexpectedness, out of place-ness, and counter-intuitivity… though not like a slap in the face or a plunge in an unexpectedly ice cold lake but more like my name whispered breathily and barely heard when no one is around or a subtle slight breath gust across but behind your ear in 3/4 pose. 
 
 “What doesn’t kill you makes you stronger” Chris Stafford et al
 …and, (to “A+”) it:

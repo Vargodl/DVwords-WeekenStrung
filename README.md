@@ -34,10 +34,15 @@ I like to read interesting turns of phrases including seeming contradictions lik
 DV
 
 Question: in which of the following cities was I born?
+
 South Bend	
+
 North Liberty	
+
 East Jesus	
+
 West Bumfuck	
+
 
 Vargoladz was interesting and went well tonight. Alex was on a retreat and Win had just finished his day job work. “Retreat”became a recurrent sub-MVP.
 

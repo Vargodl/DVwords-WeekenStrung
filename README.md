@@ -6,9 +6,10 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 April 26, the last day of the first month of my retirement.
 
-I have not missed work, to my surprise and I spend much less time in email, which is a great timesaver.
 
 Retirement so far has begun much better and easier than I expected.  Margie and I are solidifying a pleasant, intimate start over coffee (which she usually makes for me) and tea  (which I usually make for her), sitting together, chatting, watching a bit of news and weather.  She usually interrupts when Roobie, our red male carnival, hears her voice and flutters down to the window, grill, cart or top of the porch umbrella.  They resume their increasingly tender Pavlovian tete-a-tete when she brings out a little cup of food and talks tenderly, almost maternally, to him (and now also his mate, Brunella, who he sometimes mouth feeds)—protecting his food by staying nearer than any of the other animals are comfortable (chipmunks Chips and Salsa;squirrels Whiteye Bulger, Bullseye, Rocky or Upton; the growing unknown rabbit family; the other birds (juncos, wrens, finches, woodpeckers, grackles and the big, loud blue jays) as well as the occasional turkeys.
+
+I have not missed work, to my surprise and I spend much less time in email, which is a great timesaver.
 
 I’ve been very regularly and increasingly reading (finished Stoker’s Dracula today, which I finally read for the first time.  Ive been reading multiple books at once and finished 3 books so far this week—all worth reading.  I continually read a bit of (and about) James Joyce’s Ulysses among others. Somewhere to be placed on the list are Frankenstein and The Man of La Mancha, both of which I’d begun reading within the last few years but didn’t get very far in either.  I hope that my life’s span exceeds completing one book per week of the many, many books I have/want to read.  That would guarantee a long, conscious, informed and interesting life.  Here’s a brief shoutout to our recent ‘northern Liverpudlian’ visitors—part of a lobe of our extended eccentric family, for their kind and stimulating visit…and especially the ‘brain fire starter’ books they gifted us (which I am reading two at this time AMONG the others I am reading).
 
@@ -35,13 +36,13 @@ DV
 
 Question: in which of the following cities was I born?
 
-South Bend	
+  South Bend	
 
-North Liberty	
+  North Liberty	
 
-East Jesus	
+  East Jesus	
 
-West Bumfuck	
+  West Bumfuck	
 
 
 Vargoladz was interesting and went well tonight. Alex was on a retreat and Win had just finished his day job work. “Retreat”became a recurrent sub-MVP.

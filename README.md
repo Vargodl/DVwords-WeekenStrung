@@ -4,6 +4,47 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
 
 
+April 26, the last day of the first month of my retirement.
+
+I have not missed work, to my surprise and I spend much less time in email, which is a great timesaver.
+
+Retirement so far has begun much better and easier than I expected.  Margie and I are solidifying a pleasant, intimate start over coffee (which she usually makes for me) and tea  (which i usually make for her), sitting together, chatting, watching a bit of news and weather.  She usually interrupts when Roobie, our red male carnival, hears her voice and flutters down to the window, grill, cart or top of the porch umbrella.  They resume their increasingly tender Pavlovian tete-a-tete when she brings out a little cup of food and talks tenderly, almost maternally, to him (and now also his mate, Brunella, who he sometimes mouth feeds)—protecting his food by staying nearer than any of the other animals (chipmunks Chips and Salsa;squirrels Whiteye Bulger, Bullseye, Rocky or Upton; the growing unknown rabbit family; the other birds (juncos, wrens, finches, woodpeckers, grackles and the big, loud blue jays) as well as the occasional turkeys.
+
+I’ve been very regularly and increasingly reading (finished Stoker’s Dracula today, which I finally read for the first time.  Ive been reading multiple books at once and finished 3 so far this week—all worth reading.  I continually read a bit of (and about) James Joyce’s Ulysses among others. Somewhere to be placed on the list are Frankenstein and The Man of La Mancha, both of which I’d begun within the last few years but didn’t get very far in either.  I hope that my life’s span exceeds completing one of the many books I have/want to read.  That would guarantee a long, conscious, informed and interesting life.  Here’s a brief shoutout to our recent ‘northern Liverpudlian’ visitors—part of a lobe of our extended eccentric family, for their kind and stimulating visit…and especially the ‘brain fire starter’ books they gifted us (which I am reading two at this time AMONG the others I am reading).
+
+I’ve been  swimming about 1/2 hour almost every day (at least 5 times a week.  I’m an ‘upper body’ swimmer and am seeing the increased definition in my upper torso and the increased strength and endurance in my stroke. A Swmp3 makes the swims more interesting and, though I’ve probably had at least 6–some air and some bone-conduction, none have been perfect and durable and none maintains consistent sound quality, usually due to movement or intro-auricular water.
+
+I’ve begun working in my studio and painting, but I am not nearly where I want to be with that at this time—something I am slowly working toward though (plan to see a future entry about “OffTh Canvas” in the next few months, with an anticipated first opening of my wonderful studio.
+
+Life continues to be and has been an opportunity to appreciate the wonder, majesty and awareness of luck all around me…and I am very grateful.  Part of my gym practice includes a gratitude meditation in the steam room and sauna, a kind of ejaculatory (as in Catholic prayerful recitation) identification and enumeration of the many people and things in my life for which I have more than I have the right to be.  Chief among these are the three most important people in my life—Margie and my two sons Alex and Winston.  I’ve been becoming more specific and grateful for what I am calling ‘the eccentric circles of extended family’ (eccentric USUALLY in the sense of not concentric).  I won’t enumerate them now as I am thinking of incorporating them in a near future painting.
+
+As someone wrote:  “If I were any better, I’d have to be twins!”
+
+In the past month, we have had a few events.  The one I am most pleased with was the surprise appreciation for Margie in NYC on April 1st at Emilio’s Balloto, thanks to Win’s help.  There was also a surprise for me on retirement day and several trips into the citIes of Boston/Cambridge, including one to our Galleries d’Orsay on Saturday for a Bruno Zupan reception.  
+
+Shefali Agarwal visited us today and it seems likely we will likely go to Paris mid June if we can arrange appropriate house sitting.
+
+An author I’ve been reading revealed that his date of birth is the same of mine, interestingly in a passage about not believing in astrology but feeling more connected to someone of his interest when he learns they are of the same astral sign. He (the author) and I also, of course, have the same astral sign but that means little to me. Contrary to his view, having the same date of birth, is (to me) really an invisible lineation between us.  
+
+I like to read interesting turns of phrases including seeming contradictions like “in praise of blame” and “ to live in a place without boundlessness”
+I like the end of statements to surprise and jar me by their non sequitur unexpectedness, out of place-ness, and counterintuitiveness… though not like a slap in the face or a plunge in an unexpectedly ice cold lake but more like my name whispered breathily and barely heard when no one is around or a subtle slight breath gust across but behind your ear in 3/4 pose. 
+
+“What doesn’t kill you makes you stronger” Chris Stafford et al
+…and, (to “A+”) it:
+“What doesn’t kill you makes you stranger” 
+DV
+
+Question: in which of the following cities was I born?
+South Bend	
+North Liberty	
+East Jesus	
+West Bumfuck	
+
+Vargoladz was interesting and went well tonight. Alex was on a retreat and Win had just finished his day job work. “Retreat”became a recurrent sub-MVP.
+
+Thank you Life, for being a wonderful and helpful colleague. Thank all the people that enrich it so much!
+
+
 April 25
 
 A few disconnected thought provocatives, most by me, some by others:

@@ -51,7 +51,7 @@ Thank you Life, for being a wonderful and helpful colleague. Thank you very much
 
 Roobie (from rooibos, a red tea): ![image](https://user-images.githubusercontent.com/128755897/234760270-0c30caf7-4315-4876-9ffc-a456746d0f4a.jpeg)
 
-and our newest baby bunny: ![image](https://user-images.githubusercontent.com/128755897/234760356-c7466778-217a-4021-8447-521ea3aa2da5.jpeg)
+and our newest baby bunny--we'll probably call him "Skeeter" because he likes to scatter and run back and forth between our porch furniture and outr porch cart: ![image](https://user-images.githubusercontent.com/128755897/234760356-c7466778-217a-4021-8447-521ea3aa2da5.jpeg)
 
 
 

@@ -19,13 +19,17 @@ Elements of this are being clearly developed in one of the two books I am readin
 
 History teaches us so much but it doesn’t really help us to understand the conditions and states of mind that didn’t drive people to want more or better. Why/how people tolerated so much, inured to what were probably considered the random godless whims of earlier fated times…is hard to understand…yet it still happens in some ways today.  This is prbably true for most of us in ways we won't understand until our general lot is further advanced as progress marches.  For example, most of us middle aged and older probably grew up in some ways accepting that 'hysteria' (not really the correct term but meaningfulbecause earlier hysteria was thought to be due to the 'wondering uterus' and hyter- is the same root in both circumstances) was associated with pre-/peri-menstrual behavior which might be considered irrational or similar.  I think this was a folie a deux for both males and females.  Similarly, people who are truly mentally ill and act abnormally (and their families/caregivers do not benefit from everyone acting as if nothing is wrong.
 
-Though history reverberates, the oscillations do tend to dampen over time.
 
 
 Jerry Springer died, per his manager Bradley Springer. I guess he’s no longer a springer chicken. 
 
 
 One learns so much…
+
+
+…and just one more thing…
+Though history reverberates, the oscillations do tend to dampen over time.
+
 
 
 

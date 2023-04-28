@@ -4,6 +4,12 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
 
 
+April 28
+
+![image](https://user-images.githubusercontent.com/128755897/235249295-b9f39b84-3fb9-46f9-bbb2-59be88d64f21.png)
+
+
+
 April 27
 
 Re: retirement, rather than taking 'another bite at the apple,' why not take a bite at a whole sweet new fruit (low-hanging? Cherry?) and gobble that up?

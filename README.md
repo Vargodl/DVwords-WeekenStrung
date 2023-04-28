@@ -24,6 +24,7 @@ Try as we might, men are probably at best myopic feminists, or myopic anti-chauv
 
 I finished my Margie's LasSupprise tableau today (to thank those who were able to attend our event in NYC on April 1st):
 
+![image](https://user-images.githubusercontent.com/128755897/235256430-accf5266-ad02-4a36-a873-ff1308349041.jpeg)
 
 
 

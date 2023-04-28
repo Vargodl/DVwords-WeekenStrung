@@ -8,7 +8,7 @@ April 27
 
 Re: retirement, rather than taking 'another bite at the apple,' why not take a bite at a whole sweet new fruit (low-hanging? Cherry?) and gobble that up?
 
-There are two types of people.  One of them affirms there are two types of people…
+There are two types of people.  Those who believe there are two types of people…
 
 About the “is this all there is?” of the universe.  If the universe were a balloon, or a magnetic loop, it still doesn’t explain if that is all there is.
 

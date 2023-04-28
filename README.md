@@ -8,6 +8,22 @@ April 27
 
 Re: retirement, rather than taking 'another bite at the apple,' why not take a bite at a whole sweet new fruit (low-hanging? Cherry?) and gobble that up?
 
+There are two types of people.  One of them affirms there are two types of people…
+
+About the “is this all there is?” of the universe.  If the universe were a balloon, or a magnetic loop, it still doesn’t explain if that is all there is.
+
+In my first class in semantics in high school, where I learned what semantics was, I was very impressed by the statement “He (because it was the editorial HE then) who can define is master!”  That is a very powerful statement that has stayed with me ever since.  I still appreciate it and agree with it but I think it is or should also be nuanced to include that masters also define—including by brute force, propaganda, advertising and manipulation.  …And, money is increasingly becoming a surrogate for mastery/leadership…whether in business, politics and elsewhere.  This is increasingly being splintered by the emergence of major news networks and outlets which create then standardize and reverberate, propogating chosen messages.
+
+Elements of this are being clearly developed in one of the two books I am reading (The Woman who They couldn’t silence, by Kate Moss) which were gifts from our recent Canadienne visitors. It is about an apparently intelligent, open-minded woman around 1860 whose increasing open-mindedness clashed with the dogma of her husband (who was a pastor).  He was able to get her committed to a horrible asylum for ‘trumped up’ reasons that were used by many men to control the women in their lives. The nascent, voodoo psychiatric system was aligned with this. [NOTE: I started my post Med school training in psychiatry and I am a solid supporter of the specialty so I am not dissing psychiatry as if I was a Scientologist.  Psychiatry then was mostly an unscientific tool of the establishment. It is still not perfect but it is a valuable specialty in many parts of the world. Though I’m not so sure about places like Russia.]. At the time in the book, a wife could essentially be institutionalized because her husband wanted that.  The other ever more egregious example is the catch-22 ‘disease’ of ‘drapetomania,’ which I am ashamed to admit that I had never heard of before.  Drapetomania is (wiki) a bit of racist, pre-Freudian quack psychology. This unusual psychological condition was only observed in black slaves during the early 1800s. Symptoms of drapetomania include a refusal to accept one's Biblically-ordained position as a sort of human livestock and the tendency to head northward at high speed in the middle of the night. The cure, unsurprisingly, was to rough up any slaves that show symptoms until symptoms disappear.   Basically, oppressors determine that if the oppressed don’t want to be oppressed, they are mentally ill.  What can be more power-mad and self-serving than that?
+
+History teaches us so much but it doesn’t really help us to understand the conditions and states of mind that didn’t drive people to want more or better. Why/how people tolerated so much, inured to what were probably considered the random godless whims of earlier fated times…is hard to understand…yet it still happens in some ways today.
+
+Jerry Springer died, per his manager Bradley Springer. I guess he’s no longer a springer chicken. 
+
+One learns so much…
+
+
+
 April 26, the last day of the first month of my retirement.
 
 

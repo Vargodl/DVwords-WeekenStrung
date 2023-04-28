@@ -6,9 +6,34 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 April 28
 
-![image](https://user-images.githubusercontent.com/128755897/235249295-b9f39b84-3fb9-46f9-bbb2-59be88d64f21.png)
+An interesting day--have been on line most of the day with the Andrew Weill Center on Alternative Medicine, which has been very interesting so far.  Including with the interesting presenter with massive sunglasses due to the headaches of traumatic brain injury talking about medical creative poetry (without rules).  Interesting that her somewhat bizarre appearance does cause one (me) to 'wonder if she is all there.'  Sad, probably unfair, but true.  Similar to the topic of mental illness mentioned yesterday.  
+
+I began my post-Med School training in Psychiatry at the University of Chicago (a very biological (medically oriented) approach.  It was even then a speciality looking for rigor.  The DSM (Diagnostic and Statistical Manual) which was the basis of diagnosis was like  a chinese menu-->  if your patient has 3 of the 5 main symptoms from column A, 3 of the 7 from column B and is less than 65 years old...the diagnosis is xxx.  And even then, symptoms are prone to interpretation and therefore inexact.  Further the DSM kept amending, revising and changing.  I don't even thingk homosexuality is a disease any more...Imagine that???  Although the diagnostic tools do get better, it is still largely a matter of interpreting actions and words.  So it is not too much a stretch to imagine that psychiatry could be an instrument to control those who need to be controlled by those in power.  I'm not suggesting that this is hnd has been the only purpose or use for psychiatry...I don't believe it is.
+
+As mentioned yesterday, psychiatry and asylums were used to control 'wayward,' independent wives and women.  (Some becasue they enjoyed masturbation too much (not sure how much that is) and some because ... believe it or not ... they did not want to have sex with their husbands.)  I suppose if divorce weren't so frowned upon at the time (including for women who often probably had no means of support after divorce), the institutionalization of women would have been less.
+
+“When I was in the asylum they locked me up..but what did I care for that as long as they had no key that would fit my mouth?”
+Phebe B Davis, 1855
 
 
+I learned a few interesting bits today:
+1)  The word  Eskimo has a racist history means most people in Canada and Greenland still prefer other terms. The most widespread is Inuit, which means simply, "people." The singular, which means "person," is Inuk.
+2)  one of my favorite means, pasta puttanesca may have been named because puttanesca is the adjectival term for 'whore' or 'prostitute'  and it may have been invented in one of many bordellos in the Naples working-class neighbourhood as a quick meal taken between servicing clients. Alternatively, according to food historian Jeremy Parzen: "Italians use puttana (and related words) almost the way we use shit, as an all-purpose profanity, so pasta alla puttanesca might have originated with someone saying, essentially, 'I just threw a bunch of shit from the cupboard into a pan'.
+
+Try as we might, men are probably at best myopic feminists, or myopic anti-chauvinists.  Many of us are sensitized to the equality of women but, like someone else's pain, you can try to be aware of it but it probably doesn't always intrude (painfully) into your very being.
+
+I finished my Margie's LasSupprise tableau today (to thank those who were able to attend our event in NYC on April 1st):
+
+
+
+
+…just one more thing…
+
+The emanations of ‘new history’ (events, especially significant ones, that will move the needle and measure in history) are significantly colored by the eyes of the victors and the powerful (who record and propagate them as fact, and myth). Also true for past history—tales writ by the strongest and most successful brutes (hopefully to be teased out and contextualized by able interested investigators later).
+
+In a future of online records, all will be their own historians—-for 15 minutes; All will be ‘internet significant.’ AI May end up being the recognizers and appreciators of the ‘internet significant.’
+
+ 
 
 April 27
 

@@ -17,8 +17,8 @@ Phebe B Davis, 1855
 
 
 I learned a few interesting bits today:
-1)  The word  Eskimo has a racist history means most people in Canada and Greenland still prefer other terms. The most widespread is Inuit, which means simply, "people." The singular, which means "person," is Inuk.
-2)  one of my favorite means, pasta puttanesca may have been named because puttanesca is the adjectival term for 'whore' or 'prostitute'  and it may have been invented in one of many bordellos in the Naples working-class neighbourhood as a quick meal taken between servicing clients. Alternatively, according to food historian Jeremy Parzen: "Italians use puttana (and related words) almost the way we use shit, as an all-purpose profanity, so pasta alla puttanesca might have originated with someone saying, essentially, 'I just threw a bunch of shit from the cupboard into a pan'.
+1)  The word  Eskimo has a racist history and most people in Canada and Greenland still prefer other terms. The most widespread is Inuit, which means simply, "people." The singular, which means "person," is Inuk.
+2)  One of my favorite meals, pasta puttanesca, may have been named because puttanesca is the adjectival term for 'whore' or 'prostitute'  and it may have been invented in one of many bordellos in Naples working-class neighbourhoods as a quick meal taken between servicing clients. Alternatively, according to food historian Jeremy Parzen: "Italians use puttana (and related words) almost the way we use shit, as an all-purpose profanity, so pasta alla puttanesca might have originated with someone saying, essentially, 'I just threw a bunch of shit from the cupboard into a pan'.
 
 Try as we might, men are probably at best myopic feminists, or myopic anti-chauvinists.  Many of us are sensitized to the equality of women but, like someone else's pain, you can try to be aware of it but it probably doesn't always intrude (painfully) into your very being.
 
@@ -30,11 +30,14 @@ I finished my Margie's LasSupprise tableau today (to thank those who were able t
 
 …just one more thing…
 
-The emanations of ‘new history’ (events, especially significant ones, that will move the needle and measure in history) are significantly colored by the eyes of the victors and the powerful (who record and propagate them as fact, and myth). Also true for past history—tales writ by the strongest and most successful brutes (hopefully to be teased out and contextualized by able interested investigators later).
+The emanations of ‘new history’ (events, especially significant ones, that will move the needle and measure in history) are significantly colored by the eyes of the victors and the powerful (who record and propagate them as fact, and myth). This is also true for past history—tales were writ by the strongest and most successful brutes (hopefully to be teased out and contextualized by able interested investigators later).
 
-In a future of online records, all will be their own historians—-for 15 minutes; All will be ‘internet significant.’ AI May end up being the recognizers and appreciators of the ‘internet significant.’
+In a future of online records, all will be their own historians—-for 15 minutes; All will be ‘internet significant.’ AI may end up being the recognizers and appreciators of the ‘internet significant.’
 
  
+ 
+ Thanks for reading today.  
+ Your Inuk
 
 April 27
 

@@ -5,9 +5,9 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 April 29
 
-We met the Slovenian artist Bruno Zupan at his opening tonight.  We also bought one of his paintings: Be my Valentine!
+We met the Slovenian artist Bruno Zupan at his opening tonight.  We also bought one of his paintings: Be my Valentine!  Apparently, it was his wife's favorite.  
 ![image](https://user-images.githubusercontent.com/128755897/235339150-b7a889f9-6de3-4d55-8d7d-14156144f735.png)
-wWe also bought 3 small pieces by his saughter, Natasha.
+We also bought 3 small pieces by his saughter, Natasha.
 
 “The more one forgets one’s own self, the more human the person becomes.”  Victor Frankl
 

@@ -3,6 +3,53 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
 
+April 29
+
+We met the Slovenian artist Bruno Zupan at his opening tonight.  We also bought one of his paintings: Be my Valentine!
+![image](https://user-images.githubusercontent.com/128755897/235339150-b7a889f9-6de3-4d55-8d7d-14156144f735.png)
+wWe also bought 3 small pieces by his saughter, Natasha.
+
+“The more one forgets one’s own self, the more human the person becomes.”  Victor Frankl
+
+Anyways… Attributed to Mother Theresa
+
+People are often unreasonable, irrational, and self-centered. 
+Forgive them anyway.
+If you are kind, people may accuse you of selfish, ulterior motives. 
+Be kind anyway.
+If you are successful, you will win some unfaithful friends and some genuine enemies. 
+Succeed anyway.
+If you are honest and sincere people may deceive you. 
+Be honest and sincere anyway.
+What you spend years creating, others could destroy overnight. 
+Create anyway.
+If you find serenity and happiness, some may be jealous. 
+Be happy anyway.
+The good you do today, will often be forgotten. 
+Do good anyway.
+Give the best you have, and it will never be enough. 
+Give your best anyway.
+In the final analysis, it is between you and God. 
+It was never between you and them anyway.
+
+
+The term “Silent Generation” was first documented in a 1951 Time magazine article, which claimed that the most startling fact about this generation was its silence: “By comparison with the Flaming Youth of their fathers and mothers, today's younger generation is a still, small flame.” The generation's “silent” behavior
+
+
+"Touch me. Soft eyes. Soft soft soft hand. I am lonely here. O, touch me soon, now. What is that word known to all men? I am quiet here alone. Sad too. Touch, touch me" (JJ Ulysses).
+
+
+“None are more hopelessly enslaved than those who falsely believe they are free.”
+-Johann Wolfgang von Goethe
+
+Another poignant song:
+Janis Ian, At Seventeen
+https://youtu.be/ESS0eKJpEZQ
+
+
+ …just one more thing…
+Expect surprises
+Expect abundance
 
 April 28
 

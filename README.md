@@ -3,6 +3,30 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
 
+April 30
+
+The Opportune Gift of Friendship
+
+‘Life’ is a banquet, fecund, perhaps even fractal, in its many opportunities and riches.  Some of the greatest riches are the natural inclinations for connecting, bonding and collaborating which occur between most living beings—inter and intra-species.  These are filigreed in us humans in our reciprocal interactions and relationship with pals and partners…friends and lovers, and we as individuals.
+
+Our friends shine spotlights on the many opportunities life offers so that we can better see, share, enjoy and appreciate them.  These relationships are chapters of our personal life books that stretch and expand us beyond our innate individual limitation in space, thought and time and outside of ourselves—expanding our intellects, our reaches and our limited spans. We travel further when we travel with our companions of books…and others.  
+
+“Best friends” (really ‘better’ friends, because most of us are fortunate enough to have several in the course of our lives) are the real magic of connectedness. These are the friends with whom we can resume the relation despite years of disconnection or separation, kind of like a discussion interrupted by being separated into different elevator cars which resumes as soon as the elevator doors open, the riders reconnect and the conversation resumes, barely missing a phrase. In this analogy, the elevator, like the friendship,  lifts us up taking us higher to where we want to go.  (And sometimes, we just ride for the joy of being with a friend.)
+
+Today a group of us shared a surprise brunch celebration for a friend’s (FV) next employment chapter as he starts a new job tomorrow.  We surprised him with our love and support in this worthwhile venture.  He knows we are there for him and share his excitement.
+
+Similarly, I resumed an ‘elevator-interrupted’ conversation with a special friend (RN) this evening.
+
+So, here’s to friends…the flowers in our gardens…our sparks of joy. 
+
+Thank you for being a friend
+https://youtu.be/voNEgCKzves
+
+
+…just one more thing;
+
+"Opportunities come infrequently... when it rains gold, put out the bucket, not the thimble."  Warren Buffett
+
 April 29
 
 We met the Slovenian artist Bruno Zupan at his opening tonight.  We also bought one of his paintings: Be my Valentine!  Apparently, it was his wife's favorite.  

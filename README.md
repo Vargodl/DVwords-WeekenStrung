@@ -49,7 +49,9 @@ It wasn’t until the 21st  century that I began to experience the pubic sculpti
 
 
 Not everything that counts can be counted, and not everything that can be counted counts. William Bruce Cameron
+
 Not everything that should be said can be said; Not everything that can be said should be said. DV
+
 In matters of sex and so many other things, it is important to learn to let go of who you think you're supposed to be and embrace who you are.
 
 

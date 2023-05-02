@@ -24,32 +24,22 @@ ML&MH Elton John
 
 The first time I performed cunnilingus was in a sleeping bag on the floor of a walk-up college apartment in Terre Haute Indiana—this was SOOOO exciting I had a spontaneous, involuntary back-arching, orgasm, clumsily (I am sure) and uneducatedly, clitorally unawaredly sloppily slurping in the literal lap of sweet lady’s ecstasy. I doubt she had the same experience. 
 
-
 I thought we would ‘go all the way’ and asked to ‘make love’ to her to which she abruptly ‘broke my zipper’ with a deflating, definitive, very confusing NO!
 
-
 Eventually, when the time (of the month) was right, we committed our first glorious brain emptying PVI (penile vaginal intromission)—and WHAT AN  e-MISSION IT WAS!!!. We lit an uncontrollable electric wildfire  putting a throbbing, plundering exposed coiled nerve into her warm moist silk purse and depositing my milk money there. We did this in the upper bunk bed of my bedroom while War’s The World Is A Ghetto* https://youtu.be/WFmCCxMp7BE was playing—a seemingly inappropriately titled song was actually rhythmically perfect for sex (slow zoom please). Our ‘Frank Sinatra’ was War!  The World Is A Ghetto obviously became our post-coital private message, our ‘wink! wink!’ song and secret mating call, which I also secretly messaged as last words of my philosophy high school thesis. (“Despite it all, life can be a most amazing experience even if the world is a ghetto.”)
-
 
 Catholically confused about (eg against artificial) birth control—we ‘got rhythm,’ red wave riding, and interruptus…AND monthly pregnancy scares.  Me every time LITERALLY telling her “we’ll, I guess we have to get married then”, while internally telling myself what a fucking idiot I was, figuratively kicking myself in the head telling myself I must never do that again..but unable to stop myself and reliving the fear of destroying my life EVERY MONTH!  This was especially true one time in the summer when we had our first mutual spontaneous abortion…er, I mean, orgasm, in her back yard.  (Another life begun, mine done.)  I was so ignorant I really thought that the intensity of that mutual event signified a magically successful impregnating. That was stupid, but terrifying. Such the power of lusty youthful sexual urges and the dangers of ignorance. 
 
 
 I now understand why some of the great literature, great wars and many idiotic mistakes have been made. How men are caught ‘in flagrante (and rampante) dicto’ by jealous husbands even though they hear the husband in the house/on the stairs/at the door because they are unable to not have that one last thrust. How ineffective coitus interruptus really is but at the moment the brain ceases to function. Like the reputed (though disproven) dinosaur, it is the lower pelvic brain that thinks it is thinking when in fact only a reflex procreative loop of the 'errant rampant penis' has been engaged.  Not only have thousands of ships been launched, my submarine itself has fired thousands of torpedoes and billions of tiny homuncular swimmer frogmen have died!
 
-
-
 Being a ’good’ Catholic girl (who not only couldn’t control her lusts but did not lead me not into temptation but rather led me forth THROUGH her wonderful, silky, wet, receptive and quivering pillars of temptation), she did not believe or support abortion. In fact she was on the debate team to argue against it. Strangely a year or two after we broke up, she wrote me from college and asked me if I would send her $500 so that she COULD have an abortion (not my child).
-
 
 This song by Chad & Jeremy, is in honor of those clumsy efforts:
 
 https://youtu.be/BSByOeew1rU Chad & Jeremy - Yesterday's Gone (1964)
 
-
 It wasn’t until the 21st  century that I began to experience the pubic sculpting, lasering, razoring, braziering, runways, skid marks, goatees up to and including the cantatrice chauve of the modern woman’s eschutcheon…and I’m up for it all. Beavers, toes of camels, the other thing that smells like fish, meat flaps, snatches, coinslots, gossamer Hymenoptera…you name it. I can’t get enough. 
-
-
-In matters of sex and so many other things, It is important to learn to let go of who you think you're supposed to be and embrace who you are.
 
 
 *most interestingly, in researching this, I have discovered that for all these years, remembered the correct album but the wrong ‘Frank Sinatra’ song of our first PVI. The album was The World is a Ghetto (it was my album and I remember the cover vividly) but the song (and the link) was Four-Cornered Room.  Marcel Proust, even though the madeleine was just as sweet, where’ve you been all these years?
@@ -59,8 +49,8 @@ In matters of sex and so many other things, It is important to learn to let go o
 
 
 Not everything that counts can be counted, and not everything that can be counted counts. William Bruce Cameron
-
 Not everything that should be said can be said; Not everything that can be said should be said. DV
+In matters of sex and so many other things, it is important to learn to let go of who you think you're supposed to be and embrace who you are.
 
 
 

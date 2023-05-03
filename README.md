@@ -3,6 +3,23 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
 
+
+Mais too, another first
+
+In lieu of further erudition on this blog, I posted my first audio blog today called “Intermittent Audioujourdemain Missive, primarily for Donnie but also anyone else who wants to listen”
+
+It was posted in our Vargolads discord channel.  I hope you can access it…focused on birth stories, most specifically of Alex and Win.   Please let me know your thoughts.  Donnie kindly complimented my “radio voice.”  
+
+Thanks Donnie
+
+
+…and just one more thing:
+
+She asked me to kiss her where it smelled fishy 
+so I took her to the pier… 
+and kissed her there.
+
+
 May firth (> 5 versions):
 
 1) May Day—pagan rite of spring with all the Mays (Queen Pole Bush, etc)

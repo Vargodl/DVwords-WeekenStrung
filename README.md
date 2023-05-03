@@ -16,7 +16,9 @@ Thanks Donnie
 …and just one more thing (perhaps a propos to yesterday's entry):
 
 She asked me to kiss her where it smelled fishy 
+
 so I took her to the pier… 
+
 and kissed her there.
 
 

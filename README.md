@@ -6,14 +6,14 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 Mais too, another first
 
-In lieu of further erudition on this blog, I posted my first audio blog today called “Intermittent Audioujourdemain Missive, primarily for Donnie but also anyone else who wants to listen”
+In lieu of further erudition on this blog today, I posted my first audio blog called “Intermittent Audioujourdemain Missive, primarily for Donnie but also anyone else who wants to listen."
 
 It was posted in our Vargolads discord channel.  I hope you can access it…focused on birth stories, most specifically of Alex and Win.   Please let me know your thoughts.  Donnie kindly complimented my “radio voice.”  
 
 Thanks Donnie
 
 
-…and just one more thing:
+…and just one more thing (perhaps a propos to yesterday's entry):
 
 She asked me to kiss her where it smelled fishy 
 so I took her to the pier… 

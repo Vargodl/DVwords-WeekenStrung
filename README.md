@@ -2,6 +2,26 @@
 PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023. 
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
+_____________
+
+May 3
+
+I dont generally regugitate VARGOLADZ here but today's was uniquely interesting as I was going to have my MVP (Most Valuable Player) about symbolism and meaning
+![image](https://user-images.githubusercontent.com/128755897/236116092-6bb78e34-da2f-4598-bf4a-499b20af5a43.jpeg)
+but we really discussed semantics, esoecially the word RAPE.  The younger others affirmed that the R word shouldn't be used, but should rather be referred to as 'sexual assault.'  I never heatd of such a ban and, from a transitive or logical perspective, I would suggest that they dont refer to identical things.  in other words, rape is a sexual assault but sexual assault is a much broader, basket term that doen not necesarrily refer to rape.  I agree the word 'rape' is a powerful,jarring term--and it should be because it is a horrific, violent act.
+I checked with Margie, too, and she also didn't know that the word was cancelled.  So I'm not sure there is a concensus here.
+
+...just one more (somewhat related logical) thing:
+
+Nothing is better than steak;
+
+Hot dogs are better than nothing.
+
+Therefore, hot dogs are better than steak.
+
+
+
+
 
 
 Mais too, another first

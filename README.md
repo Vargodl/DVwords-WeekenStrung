@@ -13,7 +13,7 @@ I checked with Margie, too, and she also didn't know that the word was cancelled
 
 Though it shouldn't need to be stated or restarted, I think sexual including rape are horrible violations.  I am confident that I never did and I never will commit or condone such acts.
 
-...just one more (somewhat related logical) thing:
+...just one more (somewhat logically related) thing:
 
 Nothing is better than steak;
 

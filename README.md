@@ -7,7 +7,7 @@ ______
 
 May 4
 
-Words can be powerful, impactful, shocking even mean...but they arent sricks and stones...they can't hurt you.  They can be loaded but they dont pierce flesh.  The biggest risks are emotional injury or perhaps incitement to violence.  But to let words incite violent behaviour is a choice or at least lack of control.
+Words can be powerful, impactful, shocking even mean...but they aren't sticks and stones...they can't hurt you.  They can be loaded but they dont pierce flesh.  The biggest risks are emotional injury or perhaps incitement to violence.  But to let words incite violent behaviour is a choice or at least lack of control.
 
 Jean Carrol, in her trial against D Trump, accuses him of raping her.  She does avoid that word, she maybe the victim but she is denying victimhood.
 

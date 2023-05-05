@@ -12,7 +12,7 @@ Words can be powerful, impactful, shocking even mean...but they aren't sticks an
 Jean Carrol, in her trial against D Trump, accuses him of raping her.  She does avoid that word, she maybe the victim but she is denying victimhood.
 
 
-I've really enjoyed the following letteranout words.  like the author, I modified it and used it as a cover letter and it indeed got me in the door:
+I've really enjoyed the following letter about words.  like the author, I modified it and used it as a cover letter and it indeed got me in the door:
 
 “Dear Sir:
 I like words. I like fat buttery words, such as ooze, turpitude, glutinous, toady. I like solemn, angular, creaky words, such as straitlaced, cantankerous, pecunious, valedictory. I like spurious, black-is-white words, such as mortician, liquidate, tonsorial, demi-monde. I like suave “V” words, such as Svengali, svelte, bravura, verve. I like crunchy, brittle, crackly words, such as splinter, grapple, jostle, crusty.

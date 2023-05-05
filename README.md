@@ -2,6 +2,36 @@
 PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023. 
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
+
+______
+
+May 4
+
+Words can be powerful, impactful, shocking even mean...but they arent sricks and stones...they can't hurt you.  They can be loaded but they dont pierce flesh.  The biggest risks are emotional injury or perhaps incitement to violence.  But to let words incite violent behaviour is a choice or at least lack of control.
+
+Jean Carrol, in her trial against D Trump, accuses him of raping her.  She does avoid that word, she maybe the victim but she is denying victimhood.
+
+
+I've really enjoyed the following letteranout words.  like the author, I modified it and used it as a cover letter and it indeed got me in the door:
+
+“Dear Sir:
+I like words. I like fat buttery words, such as ooze, turpitude, glutinous, toady. I like solemn, angular, creaky words, such as straitlaced, cantankerous, pecunious, valedictory. I like spurious, black-is-white words, such as mortician, liquidate, tonsorial, demi-monde. I like suave “V” words, such as Svengali, svelte, bravura, verve. I like crunchy, brittle, crackly words, such as splinter, grapple, jostle, crusty.
+I like sullen, crabbed, scowling words, such as skulk, glower, scabby, churl. I like Oh-Heavens, my-gracious, land’s-sake words, such as tricksy, tucker, genteel, horrid. I like elegant, flowery words, such as estivate, peregrinate, elysium, halcyon. I like wormy, squirmy, mealy words, such as crawl, blubber, squeal, drip. I like sniggly, chuckling words, such as cowlick, gurgle, bubble and burp.
+I like the word screenwriter better than copywriter, so I decided to quit my job in a New York advertising agency and try my luck in Hollywood, but before taking the plunge I went to Europe for a year of study, contemplation and horsing around.
+I have just returned and I still like words.
+May I have a few with you?
+Robert Pirosh”
+
+Excerpt From Letters of Note: Volume 1 by Shaun Usher
+
+...and one more thing:
+
+A young man came to Mozart, and said, ‘I want to compose symphonies. I want to talk to you about that.’
+Mozart said, ‘How old are you?’ ‘Twenty-two.’
+And Mozart said, ‘You’re too young to do symphonies.’
+And the guy says, ‘But you were writing symphonies when you were ten years old.’
+Mozart answers, ‘Yes, but I wasn’t running around asking other people how to do it.’”
+
 _____________
 
 May 3

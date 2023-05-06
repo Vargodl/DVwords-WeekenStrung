@@ -10,7 +10,7 @@ Cinco de mayo
 Word meanings…
 
 I like, appreciate, laud and am awed by the power of words, soft words, power words, words slanting leftwards/rightwards, words cursive (Fuck) and shocking (rape). I’m not especially interested in offense (cunt) but rather surprise (zouch).
-Words that ‘can’t be said’ (though I’m not exactly sure why they can’t (by some, not all at least) no matter the context. 
+Words that ‘can’t be said’ (though I’m not exactly sure why they can’t (by some, not all at least)) no matter the context. 
 
 Clearly it is not the word, not the series of letters, nay the sounds but rather the meaning and (even more than meaning), the connotation.  Even oblique references to the offensive word can be offensive (the best example I can think of is “See (C) you (U) Next Tuesday,” which I recently heard Stephen Colbert say when referring to Tucker Carlson’s ‘Troubles’).
 This is one of the reasons that words can be either powerful, incomprehensible or bland in foreign languages… and why we try to learn the dirty words in the languages we are studying. 

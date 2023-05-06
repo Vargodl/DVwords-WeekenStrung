@@ -23,8 +23,11 @@ In this case “offensiveness/danger’ is no quality in words themselves: It ex
 So it is important to appreciate the meaning and power of words but not be cowed by them. To know how to use words yet not run from them. 
 
 Two pertinent Nietzsche quotes:
+
 Truths are illusions about which one has forgotten that this is what they are. 
+
 The surest way to corrupt a youth is to instruct him to hold in higher esteem those who think alike than those who think differently.
+
 
 …just one more thing:
 

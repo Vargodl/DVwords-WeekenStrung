@@ -3,6 +3,34 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
 
+_____
+
+Cinco de mayo
+
+Word meanings…
+
+I like, appreciate, laud and am awed by the power of words, soft words, power words, words slanting leftwards/rightwards, words cursive (Fuck) and shocking (rape). I’m not especially interested in offense (cunt) but rather surprise (zouch).
+Words that ‘can’t be said’ (though I’m not exactly sure why they can’t (by some, not all at least) no matter the context. 
+
+Clearly it is not the word, not the series of letters, nay the sounds but rather the meaning and (even more than meaning), the connotation.  Even oblique references to the offensive word can be offensive (the best example I can think of is “See (C) you (U) Next Tuesday,” which I recently heard Stephen Colbert say when referring to Tucker Carlson’s ‘Troubles’).
+This is one of the reasons that words can be either powerful, incomprehensible or bland in foreign languages… and why we try to learn the dirty words in the languages we are studying. 
+
+For words to be offensive, of course, there has to be a group offended…increasingly powerful by how large the group is, how legitimately aggrieved it is, how unified, how aware the offenders are and especially if they are indifferent or even hostile to the group, how vocal and how long they’ve been aggrieved (among other criteria).
+
+Words are beautiful. Like David Hume’s statement about beauty:  “Beauty is no quality in things themselves: It exists merely in the mind which contemplates them; and each mind perceives a different beauty.”
+In this case “offensiveness/danger’ is no quality in words themselves: It exists merely in the mind which contemplates them; and each mind perceives a different offensiveness.”
+
+So it is important to appreciate the meaning and power of words but not be cowed by them. To know how to use words yet not run from them. 
+
+Two pertinent Nietzsche quotes:
+Truths are illusions about which one has forgotten that this is what they are. 
+The surest way to corrupt a youth is to instruct him to hold in higher esteem those who think alike than those who think differently.
+
+…just one more thing:
+
+“…most people want to be right. The very best people, however, want to know if they're right.” — John Cleese
+
+
 ______
 
 May 4

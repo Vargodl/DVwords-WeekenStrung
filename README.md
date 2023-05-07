@@ -5,6 +5,11 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 _____
 
+May 6
+
+A newly corona'd king for a shrinking realm.
+Much ado...nothing!
+
 Cinco de mayo
 
 Word meanings…

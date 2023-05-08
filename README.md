@@ -4,6 +4,32 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
 
 _____
+May 7
+
+It’s been 70 years between coronations in
+the dwindling luxury brand of the British empire —probably most effective for monetizing merchandise and people.  Although I thought Brexit was the wrong, Putin-influenced decision, I hope this is the last coronation for a much smaller United (only/sort of) Kingdom because it seems a self-indulgent money, prestige and power grab by the ‘firm’ of a racist family that don’t actually have any power.   
+The coronation of ‘the king’ yesterday cost (mostly the British taxpayers)  around 100 million pounds—and that was supposedly downsized. Half the population watched—the other half on the food lines. Other than the British populace there, most of the paying attendees seemed to have been visiting dignitaries, press (including people from Boston TV channels…and widely smiling Lionel Ritchie. 
+Harry, in self-imposed exile, was there to represent the most obviously self-absorbed and self-promoting appendix of the royally confused family. 
+
+Andrew, exiled because all of his self-indulgence was unroofed because of Jeffery Epstein. 
+
+…and Chucky is King Camilla’s Tampon:
+
+
+…and just one more thing:
+
+Walking around town on this beautiful day, I saw this yard sign:  “I support the police.”  My yard sign would say:
+I support 	
+The police	
+The troops	
+Ukraine	
+Blacks 	
+Lives	
+and 	
+Matters. 	
+
+
+_____
 
 May 6
 

@@ -15,7 +15,7 @@ Harry, in self-imposed exile, was there to represent the most obviously self-abs
 Andrew, exiled because all of his self-indulgence was unroofed because of Jeffery Epstein. 
 
 …and Chucky is King Camilla’s Tampon:
-
+https://youtu.be/gwrzj_oMZ7c
 
 …and just one more thing:
 

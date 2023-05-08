@@ -20,13 +20,21 @@ https://youtu.be/gwrzj_oMZ7c
 …and just one more thing:
 
 Walking around town on this beautiful day, I saw this yard sign:  “I support the police.”  My yard sign would say:
+
 I support 	
+
 The police	
+
 The troops	
+
 Ukraine	
+
 Blacks 	
+
 Lives	
+
 and 	
+
 Matters. 	
 
 

@@ -10,6 +10,7 @@ It’s been 70 years between coronations in
 the dwindling luxury brand of the British empire —probably most effective for monetizing merchandise and people.  Although I thought Brexit was the wrong, Putin-influenced decision, I hope this is the last coronation for a much smaller United (only/sort of) Kingdom because it seems a self-indulgent money, prestige and power grab by the ‘firm’ of a racist family that don’t actually have any power.   
 The coronation of ‘the king’ yesterday cost (mostly the British taxpayers)  around 100 million pounds—and that was supposedly downsized. Half the population watched—the other half on the food lines. Other than the British populace there, most of the paying attendees seemed to have been visiting dignitaries, press (including people from Boston TV channels…and widely smiling Lionel Ritchie. 
 Harry, in self-imposed exile, was there to represent the most obviously self-absorbed and self-promoting appendix of the royally confused family. 
+![image](https://user-images.githubusercontent.com/128755897/236738534-2a764967-099c-4b38-9c6c-b221bacba617.jpeg)
 
 Andrew, exiled because all of his self-indulgence was unroofed because of Jeffery Epstein. 
 

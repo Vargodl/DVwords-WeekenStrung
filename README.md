@@ -25,7 +25,7 @@ Such a fine memory...
 
 ...and just one more thing:
 
-Expect surprisbes!
+Expect surprises!
 _____
 May 7
 

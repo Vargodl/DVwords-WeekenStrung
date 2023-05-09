@@ -2,7 +2,30 @@
 PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023. 
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
+_____
+May 8
 
+This has been an even much beyter day than expected.
+
+After 10 years, Margie was 'fired' by her oncological surgeon with s 'call us if you need us!'
+
+This is great news as she is 10 years past her 'double fuckerotomy' for early stage breast cancrr in hrr left boob.  She took tamoxifen for 5 years--some, not all, oncologists saying that was overkill.
+
+  Now she is done with all scheduled cancer followup...and we celebrated.
+https://youtu.be/3P9X_o_FMHc
+
+
+I started the day with the pleasant reminiscence of a "Neep, Neep!" see attached:
+![image](https://user-images.githubusercontent.com/128755897/236987613-1ce13722-f392-4650-8857-2754a761ad8f.jpeg)
+
+A Neep, Neep is an anyhropomorphized banana that I used to draw for the boys when they were young that we would have little puppet-like stories briefly with.  I dont teally know but I think they made the 'Neep, Neep' sound and in a linguistic transition (synechdote?) they took on the name.  
+Such a fine memory...
+
+
+
+...and just one more thing:
+
+Expect surprisbes!
 _____
 May 7
 

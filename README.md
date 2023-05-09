@@ -18,7 +18,7 @@ https://youtu.be/3P9X_o_FMHc
 I started the day with the pleasant reminiscence of a "Neep, Neep!" see attached:
 ![image](https://user-images.githubusercontent.com/128755897/236987613-1ce13722-f392-4650-8857-2754a761ad8f.jpeg)
 
-A Neep, Neep is an anyhropomorphized banana that I used to draw for the boys when they were young that we would have little puppet-like stories briefly with.  I dont teally know but I think they made the 'Neep, Neep' sound and in a linguistic transition (synechdote?) they took on the name.  
+A Neep, Neep is an anthropomorphized banana that I used to draw for the boys when they were young that we would have little puppet-like stories briefly with.  I dont teally know but I think they made the 'Neep, Neep' sound and in a linguistic transition (synechdote?) they took on the name.  
 Such a fine memory...
 
 

@@ -5,11 +5,11 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 _____
 May 8
 
-This has been an even much beyter day than expected.
+This has been an even much better day than expected.
 
 After 10 years, Margie was 'fired' by her oncological surgeon with s 'call us if you need us!'
 
-This is great news as she is 10 years past her 'double fuckerotomy' for early stage breast cancrr in hrr left boob.  She took tamoxifen for 5 years--some, not all, oncologists saying that was overkill.
+This is great news as she is 10 years past her 'double fuckerotomy' for early stage breast cancer in her left boob.  She took tamoxifen for 5 years--some, not all, oncologists saying that was overkill.
 
   Now she is done with all scheduled cancer followup...and we celebrated.
 https://youtu.be/3P9X_o_FMHc

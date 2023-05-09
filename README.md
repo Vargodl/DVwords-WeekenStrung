@@ -7,7 +7,7 @@ May 8
 
 This has been an even much better day than expected.
 
-After 10 years, Margie was 'fired' by her oncological surgeon with s 'call us if you need us!'
+After 10 years, Margie was 'fired' by her oncological surgeon with a 'call us if you need us!'
 
 This is great news as she is 10 years past her 'double fuckerotomy' for early stage breast cancer in her left boob.  She took tamoxifen for 5 years--some, not all, oncologists saying that was overkill.
 

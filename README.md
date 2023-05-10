@@ -7,7 +7,7 @@ May 9
 
 Mystory of herstory (confirmed, at least checked. Without verbal assent but also no reactive denial):
 
-Getting a diagnosis of breast cancer is like being raped by a scary stranger who infects you with herpes…it is very yraumatic and you frequently get over the initial assault and infection…but you are never entirely sure when the herpes will next flare. 
+Getting a diagnosis of breast cancer is like being raped by a scary stranger who infects you with herpes…it is very traumatic and you frequently get over the initial assault and infection…but you are never entirely sure when the herpes will next flare. 
 
 Concerning the Chuck coronation, he was anointed in private with holy oils by the Arch of Can’tbury (The Cadbury).  This was a long histories event with strong sacramental  and other religious references. I’m not sure why that is the case, given the general deterioration in religious attendance, but the “Divine Right of Kings” (whatever that means) is invoked. 
 

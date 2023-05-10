@@ -2,6 +2,23 @@
 PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023. 
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
+
+May 9
+
+Mystory of herstory (confirmed, at least checked. Without verbal assent but also no reactive denial):
+
+Getting a diagnosis of breast cancer is like being raped by a scary stranger who infects you with herpes…it is very yraumatic and you frequently get over the initial assault and infection…but you are never entirely sure when the herpes will next flare. 
+
+Concerning the Chuck coronation, he was anointed in private with holy oils by the Arch of Can’tbury (The Cadbury).  This was a long histories event with strong sacramental  and other religious references. I’m not sure why that is the case, given the general deterioration in religious attendance, but the “Divine Right of Kings” (whatever that means) is invoked. 
+
+The oil has rich symbolism, from the Mount of Olives and spiced (like what his mom had 70years ago) although vegan
+
+…just one more thing:
+
+every day I am surprised if I am not surprised
+
+
+
 _____
 May 8
 

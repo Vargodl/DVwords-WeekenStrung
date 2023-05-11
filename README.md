@@ -5,6 +5,37 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 ___
 
+May 11
+
+We were recently informed that someone close to us (let’s call him ‘BeJesus’) was diagnosed with Stage 4 lung cancer.  He is not likely to do anything about it because he has an ‘ancient’ irrational fear of hospitals, likely because about 50 years ago his father, of similar fear and probably the originator of this fear, got sick, was hospitalized…and died.  
+Oddly inconsistent with BeJesus’s fear, about 20 years ago, after a life of too many cigarettes and alcohol, he was struggling at home in increasing congestive heart failure, then again not going to the hospital because he ‘knew’ he was dying. His wife got him to the hospital then…and that bought him these last 20 years though obviously didn’t change his hospitalophobia.  This time, due to unbiopsied spots on his lungs, he again is unable/unwilling to take definitive actions and just let himself go…hospice has been contacted.
+
+I remember my dad telling me about the hospitals of old…overcrowded places full of death, the smell of piss and the moans of constant pain.   Indeed in those days, going to the hospital was closely associated with hopelessness, fear, uncontrolled pain and death.  AND, even up until recently, chemotherapy was horrible with many awful side effects. BUT these are no longer those days!  Hospitals are hospitable, diseases. And fairly easily treated, pain is well controlled.
+
+In addition, though I admit that medical care (especially innovative pharmaceutical oncology treatments) are frequently very expensive, we have made excellent progress in the treatment of many cancers—chief among them lung cancer (which I agree he probably does have).  There are many targeted, very tolerable and highly effective treatments. People with Stage 4 cancer are living for good years with these treatments. But, health insurance, including the Medicare that BeJesus most certainly has, provides much support for diagnosis and treatment. 
+
+So it is a terrible shame that BeJesus is giving up and withdrawing, possibly robbing himself and his family of at least several more good life-years.  Unfortunate that for lack of exploring, a person who has meant much to many will likely very prematurely shuck his mortal coil…going softly into that good night. We will never know.
+
+One of the other tragedies of BeJesus’s story is that he has been estranged from one of his sons, his namesake. I’m not sure what (or what series of things) happened exactly but I think it was probably caused by their genetic nature-cum-nurture of bullheadedness, likely facilitated  by generous lubrications of alcohol.  I’ve been told that Big BeJesus doesn’t want to have anything to do with Little BeJesus (BeJesus fils) so another tragedy is that they will never reconcile which means that younger BeJesus will spend the rest of his life unable to reconcile, resolve or come to grips with this schism.  Young BeJesus will never be able to have the BeJesus the third know his grand father.
+
+https://youtu.be/UHG06Q45ziI
+B Dylan Tomorrow is a long time
+
+More important than forgiving…is asking for forgiveness.
+
+what matters most is
+how well you
+walk through the
+fire.
+—Charles Bukowski
+![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/9f370d11-eb51-4231-ae34-02d52518d7c9)
+
+…just one more thing:
+
+“Just one small positive thought in the morning can change your whole day.”
+I hope today you have the epiphany of re-connectedness
+___
+
 May 10 
 
 Some random, though meaningful, thoughts and quotes by myself and others:

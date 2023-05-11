@@ -3,6 +3,56 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
 
+___
+
+May 10 
+
+Mass Shooting numbness: (so sad a realization that a numbness is actually setting in…as well as a practice interté rationale):
+
+The idea that giving out more guns will lower gun violence is an oxymoron spread by morons.  Tim Denning
+
+Kevin Kelly: “If you ask for someone’s feedback you’ll get a critic. But if instead you ask for advice you’ll get a partner.”
+
+Time…trapped in the amber of this moment Kurt Vonnegut
+
+The only real reason we care about Jamie Foxx’s health is the curiosity of what we don’t know and that is what keeps getting cryptically announced. 
+
+Most choices, despite prompting otherwise, are not binary. Except in emergencies, there is at least one more option—and it is often the best option: “Let me think about it.”
+
+I’ve read some Ralph Waldo Emerson today (mostly Self-reliance.  Here are two interesting quotes/thoughts/interpretations:
+
+“ Life is a great stage play with frequent intermissions.”
+
+“The key to the riddle is another riddle.” 
+
+All equalities are not created equal
+
+How long is now?  Is it dimensionless like a mathematical point on a line?  Is it absolute or relative?  Is there an anti-now?
+
+I am waiting
+for the ultimate quantum explanatory,
+Revelatory information 
+…
+The final rebirth of wonder 
+aswellas
+The birth of the final wonder
+The last ever 
+now-time
+
+
+It's being here now that's important.
+There's no past and there's no future. Time is a very misleading thing. All there is ever, is the now.
+We can gain experience from the past, but we can't relive it; and we can hope for the future, but we don't know if there is one.
+-GEORGE HARRISON
+
+Wooda cooda shooda what-ifs
+
+…just one more thing:
+
+All equalities are not created equal.
+
+___
+
 May 9
 
 Mystory of herstory (confirmed, at least checked. Without verbal assent but also no reactive denial):

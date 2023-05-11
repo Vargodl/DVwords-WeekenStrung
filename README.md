@@ -7,22 +7,26 @@ ___
 
 May 10 
 
-Mass Shooting numbness: (so sad a realization that a numbness is actually setting in…as well as a practico interté rationale):
+Some random, though meaningful, thoughts and quotes by myself and others:
+
+Mass Shooting numbness: (I am very sad to be coming to the  realization that a numbness is actually setting in…that the number of shootings is so overwhelming that they are no longer surpirsing or resulting in mind lasering horror and distraction.  In addition, some of the shootings seem to have meaningless, 'practico interté' (because I can) rationales).  This is truly the next meta-tragedy of the mass of mass shootings.
 
 The idea that giving out more guns will lower gun violence is an oxymoron spread by morons.  Tim Denning
 
-Kevin Kelly: “If you ask for someone’s feedback you’ll get a critic. But if instead you ask for advice you’ll get a partner.”
+
+“If you ask for someone’s feedback you’ll get a critic. But if instead you ask for advice you’ll get a partner.”  Kevin Kelly
 
 
-The only real reason we care about Jamie Foxx’s health is the curiosity of what we don’t know and that is what keeps getting cryptically announced. 
+The only real reason we care about Jamie Foxx’s health is the curiosity of what we don’t know which is what keeps getting cryptically announced, catputing the imagination and curiousity. 
 
-Most choices, despite prompting otherwise, are not binary. Except in emergencies, there is at least one more option—and it is often the best option: “Let me think about it.”
+We are frequently confronted with options and choises.  (A recurrent commercial suggests that it is up to 50,000 a day.) Many choices are provided and prompted as binary.  BUT IT IS IMPORTANT to remember that, except in emergencies, there is at least one more option—and it is often the best option: “Let me think about it.”
 
-I’ve read some Ralph Waldo Emerson today (mostly Self-reliance.  Here are two interesting quotes/thoughts/interpretations:
+I’ve read some Ralph Waldo Emerson today (mostly Self-Reliance.  Here are two interesting quotes/thoughts/interpretations:
 
 “ Life is a great stage play with frequent intermissions.”
 
 “The key to the riddle is another riddle.” 
+
 
 All equalities are not created equal
 
@@ -51,12 +55,14 @@ The last ever
 now-time
 
 
+
 It's being here now that's important.
 There's no past and there's no future. Time is a very misleading thing. All there is ever, is the now.
 We can gain experience from the past, but we can't relive it; and we can hope for the future, but we don't know if there is one.
 -GEORGE HARRISON
 
 Wooda cooda shooda what-ifs
+
 
 …just one more thing:
 

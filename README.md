@@ -7,13 +7,13 @@ ___
 
 May 10 
 
-Mass Shooting numbness: (so sad a realization that a numbness is actually setting in…as well as a practice interté rationale):
+Mass Shooting numbness: (so sad a realization that a numbness is actually setting in…as well as a practico interté rationale):
 
 The idea that giving out more guns will lower gun violence is an oxymoron spread by morons.  Tim Denning
 
 Kevin Kelly: “If you ask for someone’s feedback you’ll get a critic. But if instead you ask for advice you’ll get a partner.”
 
-Time…trapped in the amber of this moment Kurt Vonnegut
+Time…trapped in the amber of this moment.  Kurt Vonnegut
 
 The only real reason we care about Jamie Foxx’s health is the curiosity of what we don’t know and that is what keeps getting cryptically announced. 
 
@@ -30,13 +30,22 @@ All equalities are not created equal
 How long is now?  Is it dimensionless like a mathematical point on a line?  Is it absolute or relative?  Is there an anti-now?
 
 I am waiting
-for the ultimate quantum explanatory,
+
+for the ultimate quantum 
+explanatory,
+
 Revelatory information 
+
 …
+
 The final rebirth of wonder 
+
 aswellas
+
 The birth of the final wonder
+
 The last ever 
+
 now-time
 
 

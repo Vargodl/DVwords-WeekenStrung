@@ -13,7 +13,6 @@ The idea that giving out more guns will lower gun violence is an oxymoron spread
 
 Kevin Kelly: “If you ask for someone’s feedback you’ll get a critic. But if instead you ask for advice you’ll get a partner.”
 
-Time…trapped in the amber of this moment.  Kurt Vonnegut
 
 The only real reason we care about Jamie Foxx’s health is the curiosity of what we don’t know and that is what keeps getting cryptically announced. 
 
@@ -26,6 +25,9 @@ I’ve read some Ralph Waldo Emerson today (mostly Self-reliance.  Here are two 
 “The key to the riddle is another riddle.” 
 
 All equalities are not created equal
+
+
+Time…trapped in the amber of this moment.  Kurt Vonnegut
 
 How long is now?  Is it dimensionless like a mathematical point on a line?  Is it absolute or relative?  Is there an anti-now?
 

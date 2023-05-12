@@ -5,6 +5,11 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 ___
 
+May 12
+
+![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/91ef9c2b-117d-45df-8ad0-473c3eeff395)
+
+
 May 11
 
 We were recently informed that someone close to us (let’s call him ‘BeJesus’) was diagnosed with Stage 4 lung cancer.  He is not likely to do anything about it because he has an ‘ancient’ irrational fear of hospitals, likely because about 50 years ago his father, of similar fear and probably the originator of this fear, got sick, was hospitalized…and died.  

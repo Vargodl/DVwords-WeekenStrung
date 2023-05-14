@@ -2,6 +2,24 @@
 PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023. 
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
+___
+May 13
+
+Tomorrow is Mothers Day.  From my point of view (not sure if it is appropriate to call it a ‘vantage point’), the role of mother is probably the most unique role there is, especially for human mothers.  It is not only a long period (pre birth but also usually years afterwards) but viscerally close, sharing blood and nutrition, even feeding offspring of the breasts (which we learned ironically in medical school are modified fatty sweat glands which are, none-the-less revered, jeered, pawed and lusted after in our thin-loving society).
+
+Few men would want the inconvenience of bearing children for 9 months; the male machinery (embarrassingly boggy in the baggies) is for ‘shooting and leaving,’ 
+Providing the vital fluid so that he can go slay food, compete and fight enemies…in the process likely being killed in those pursuits.  Women are more bodied to receive recumbently, retain the mess of copulation and then grow and nurture the growing brood…individually, collaboratively and socially…then continue to develop the relationship on a more maternal, long term (years) basis. Even to be taken care of afterwards when old and decrepit.
+
+After I graduated from high school, I started using occasional marijuana. There were several times (and very fond memories) of getting stoned and the synesthesia of seeing sound waves coming out of the speakers while listening to Joe Walsh Rocky Mountain Way:
+https://youtu.be/4Fz-mHGXgzs
+
+“If you can dream it, you can do it.” ―Walt Disney.
+If you can see it, you can be it—To see it makes it possible.
+
+
+…and just one more thing:
+
+The hand sees (writes/tells) truths that that the heart can’t feel and the eyes can’t see—and then there is spellcheck and it’s sometime ‘comic wisdom.’
 
 ___
 

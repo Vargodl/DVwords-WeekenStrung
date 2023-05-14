@@ -1,12 +1,13 @@
 # DVwords-WeekenStrung©
 PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023. 
 
-I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty.
-https://apple.news/AXrDB5M4fQI686eFn1Fmg6g
+I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty or the ~10% who were, from time to time (though some more than others) absolutely crazy.
+
 ___
 May 14
 
 Mother's Day history. A West Virginia woman named Anna Jarvis created the day in 1908 to honor her own mother who had passed 3 years earlier. By 1910, it was a West Virginia holiday, and then a national one in 1914. The twist? Anna Jarvis spent her later years campaigning against Mother's Day. She felt it had become too commercial.
+https://apple.news/AXrDB5M4fQI686eFn1Fmg6g
 ___
 May 13
 

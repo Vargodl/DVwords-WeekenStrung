@@ -18,7 +18,7 @@ Grandparents Day is in September.  I think we should have a Great Mothers Day fo
 
 I just found out today that this is Masturbation May.  Congratulate yourself!  Give yourself a hand.
 
-A new book has snuck in to my reading—The Night of Many Endings. It, and Tonelli’s Genesis are driving my reading this week.  Tonelli because it is so informative (on the cosmos) and somewhere between erudite and obscurely though multifacetedly referential. TNoME because it is quite interestingly descriptively written about the true humanity in down-and-out or lost people.  I should be done with both soon.
+A new book has snuck in to my reading—The Night of Many Endings. It, and Tonelli’s Genesis are driving my reading this week.  Tonelli because it is so informative (on the cosmos) and somewhere between erudite and obscurely though multifacetedly referential. TNoME because it is quite interestingly descriptively written about the true humanity in down-and-out or lost people (Flannery O'Connor's 'grotesques?').  I should be done with both books soon.
 
 Another example of Tonelli:  The hypothesis that the universe contains great quantities of non-luminous matter was first advanced in 1933 by Fritz Zwicky, a Swiss astrophysicist possessed of great ingenuity and a mischievous sense of humour. It's said that when other scientists voiced any scepticism concerning his theories, he would insult chem by calling them 'spherical bastards'. (Bastards from any angle)
 

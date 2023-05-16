@@ -8,7 +8,7 @@ ___
 
 May 15:
 
-“There are kind people in the world.” See"…and just one more thing:" (below)
+“There are kind people in the world.”   (See  "…and just one more thing:" below)
 
 In general, the default position is to love your mother and idealize her as the paragon of beauty, virtue and dedication. Not all mothers come near that of course…few if any actually do...though we need to believe it is so.
 Grandmothers deserve more love and respect in general, especially if their daughters become good mothers (not grand but good). 

@@ -12,7 +12,7 @@ May 15:
 
 In general, the default position is to love your mother and idealize her as the paragon of beauty, virtue and dedication. Not all mothers come near that of course…few if any actually do...though we need to believe it is so.
 Grandmothers deserve more love and respect in general, especially if their daughters become good mothers (not grand but good). 
-About 45 years ago I had the privilege of knowing Marie Miller, Mike’s (ACP colleague’s) French wife.  It was around Mother’s Day and she was talking about grandmothers (grandmere in French). but she translated the French word grandmere literally as ‘great mother,” and although it isn’t the correct translation, it is wonderfully descriptive for who a grandmother is and what a grandmother does.  
+About 45 years ago I had the privilege of knowing Marie Miller, Mike’s (ACP colleague’s) French wife.  It was around Mother’s Day and she was talking about grandmothers (grandmere in French) but she translated the French word grandmere literally as ‘great mother,” and although it isn’t the correct translation, it is wonderfully descriptive for who a grandmother is and what a grandmother does.  
 
 Grandparents Day is in September.  I think we should have a Great Mothers Day for our grandmothers—-perhaps, like orthodox Easter, the next Sunday.
 

@@ -33,9 +33,9 @@ In the sauna at the JCC today, I had a repeat pleasant interaction with a guy in
 
 A few minutes later, another pool mate pointed out that someone had rescued his old but worthwhile (to him) soap container.  He said to me, “There are kind people in the world.”  So I take it that my first message worked…and I thank the cosmos for that spherical music.
 
-Kindness, goodness and gratitude radiate to others, then splashes back to you and also sloshes on to someone else.
+Kindness, goodness and gratitude radiate to others, then splash back to you and also slosh on to others around you.
 
-Although there may be no measurable long term benefit to kindness, gratitude and gentle touches…even the short term burst of well being is worth the feel good effect.
+Although there may be no measurable long term benefit to kindness, gratitude and gentleness…even the short term burst of well being is worth the feel good effect.
 
 ___
 May 14

@@ -4,6 +4,40 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty or the ~10% who were, from time to time (though some more than others) absolutely crazy.
 
 ___
+
+
+May 15:
+
+“There are kind people in the world.” See…and just one more thing (below)
+
+In general, the default position is to love your mother and idealize her as the paragon of beauty, virtue and dedication. Not all mothers come near that of course…few if any actually do...though we need to believe it is so.
+Grandmothers deserve more love and respect in general, especially if their daughters become good mothers (not grand but good). 
+About 45 years ago I had the privilege of knowing Marie Miller, Mike’s (ACP colleague’s) French wife grand.  It was around Mother’s Day and she was talking about grandmothers (grandmere in French). but she translated the French word grandmere literally as ‘great mother,” and although it isn’t the correct translation, it is wonderfully descriptive for who a grandmother is and what a grandmother does.  
+
+Grandparents Day is in September.  I think we should have a Great Mothers Day for our grandmothers—-perhaps, like orthodox Easter, the next Sunday.
+
+I just found out today that this is Masturbation May.  Congratulate yourself!  Give yourself a hand.
+
+A new book has snuck in to my reading—The Night of Many Endings. It, and Tonelli’s Genesis are driving my reading this week.  Tonelli because it is so informative (on the cosmos) and somewhere between erudite and obscurely though multifacetedly referential. TNoME because it is quite interestingly descriptively written about the true humanity in down-and-out or lost people.  I should be done with both soon.
+
+Another example of Tonelli:  The hypothesis that the universe contains great quantities of non-luminous matter was first advanced in 1933 by Fritz Zwicky, a Swiss astrophysicist possessed of great ingenuity and a mischievous sense of humour. It's said that when other scientists voiced any scepticism concerning his theories, he would insult chem by calling them 'spherical bastards'. (Bastards from any angle)
+
+I also recently bought the book How To Think Like a Philosopher as I seem to be  ‘right-shifting’ to philosophy and cosmology (the first step toward philosophical scientific speculation, e.,g., cosmology as ‘natural philosophy’.)
+
+Only in silence can you hear the music of the spheres;
+The “sounds of silence” a cosmic hum.
+
+…and just one more thing:
+
+In the sauna at the JCC today, I had a repeat pleasant interaction with a guy in the kind of way slow kindnesses and friendships evolve.  As I was leaving, I wanted to leave him with a positive and uplifting thought so I said, “Love someone a bit more today than you do now;  I hope they sense that and so do you.”  [actually, given editorial time, this is much better than what I said but it had the same sense.]. He thanked me and wished the same to me.
+
+A few minutes later, another pool ate pointed out that someone had rescued his old but worthwhile (to him) soap container.  He said to me, “There are kind people in the world.”  So I take it that my first message worked…and I thank the cosmos for that spherical music.
+
+Kindness, goodness and gratitude radiate to others, then splashes back to you and also sloshes on to someone else.
+
+Although there may be no measurable long term benefit to kindness, gratitude and gentle touches…even the short term burst of well being is worth the feel good effect.
+
+___
 May 14
 
 Mother's Day history. A West Virginia woman named Anna Jarvis created the day in 1908 to honor her own mother who had passed 3 years earlier. By 1910, it was a West Virginia holiday, and then a national one in 1914. The twist? Anna Jarvis spent her later years campaigning against Mother's Day. She felt it had become too commercial.

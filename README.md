@@ -31,7 +31,7 @@ The “sounds of silence” a cosmic hum.
 
 In the sauna at the JCC today, I had a repeat pleasant interaction with a guy in the kind of way slow kindnesses and friendships evolve.  As I was leaving, I wanted to leave him with a positive and uplifting thought so I said, “Love someone a bit more today than you do now;  I hope they sense that and so do you.”  [actually, given editorial time, this is much better than what I said but it had the same sense.]. He thanked me and wished the same to me.
 
-A few minutes later, another pool ate pointed out that someone had rescued his old but worthwhile (to him) soap container.  He said to me, “There are kind people in the world.”  So I take it that my first message worked…and I thank the cosmos for that spherical music.
+A few minutes later, another pool mate pointed out that someone had rescued his old but worthwhile (to him) soap container.  He said to me, “There are kind people in the world.”  So I take it that my first message worked…and I thank the cosmos for that spherical music.
 
 Kindness, goodness and gratitude radiate to others, then splashes back to you and also sloshes on to someone else.
 

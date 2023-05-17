@@ -18,11 +18,10 @@ COVID seems to have settled into its own punishing form of endemicity. Even with
 
 Each tapestried life
 
-is woven with wonder
+woven with wonder 
 
-And
+Engendering gratitude 
 
-Wonder begets gratitude
 
 ___
 May 15:

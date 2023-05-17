@@ -17,8 +17,11 @@ COVID seems to have settled into its own punishing form of endemicity. Even with
 ...just one more thing:
 
 Each tapestried life
+
 is woven with wonder
+
 And
+
 Wonder begets gratitude
 
 ___

@@ -5,6 +5,15 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 ___
 
+May 16:
+
+Today is the 157th birthday of the US nickel. which now costs 2x more money to make  than the coin itself is worth (some would say that doesn’t make a whole lot of cents).  The nickel is the only U.S. coin that is called by its metal content – even though the metal in a nickel is only 25 percent nickel. The rest is copper.
+
+
+New YorKer:
+Tuberculosis has infected humans since at least the Stone Age and is the thirteenth leading cause of death in the world, killing a million and a half people a year.
+COVID seems to have settled into its own punishing form of endemicity. Even without a major surge this past winter, it has illed some forty thousand people in this suntry so far in 2023 and is on track to have taken tens of thousands more lives by the end of 2023,
+
 
 May 15:
 

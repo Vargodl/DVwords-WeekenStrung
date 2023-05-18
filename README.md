@@ -10,6 +10,7 @@ May 17
 ![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/083dcb54-8823-4978-b597-64f3540c97e9)
 
 ...and just one more thing:
+
 Fuck You, cancer!
 
 ___

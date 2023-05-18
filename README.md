@@ -5,6 +5,15 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 ___
 
+May 17
+
+![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/083dcb54-8823-4978-b597-64f3540c97e9)
+
+...and just one more thing:
+Fuck You, cancer!
+
+___
+
 May 16:
 
 Today is the 157th birthday of the US nickel. which now costs 2x more money to make  than the coin itself is worth (some would say that doesn’t make a whole lot of cents).  The nickel is the only U.S. coin that is called by its metal content – even though the metal in a nickel is only 25 percent nickel. The rest is copper.

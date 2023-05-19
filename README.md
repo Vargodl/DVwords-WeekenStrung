@@ -13,7 +13,7 @@ NOW is like a mathematical point on a line with perhaps one or more likely zero 
 
 I think that most people live in the now but forward looking (into the future to direct their paths).  I have found that, as I'd hoped and intended, in retirement, I am living in the now but directionally planning for the future but also (as I'd hoped for many years) reviewing past thoughts and experienced in the greater depth because of the lack of daily external urgencies, distractions and responsibilities of employed life.   So, though I've always been reflective, my mirrors are shinier, more prismatic and in much better focus now.  
 
-So I wonder, as some have postulated, was there a time before time?  Supposedly the 'big bang' occurred in about 10^-45 seconds--and infinitesimally miniscule time which  possibly was the beginning of time.  How does that really make sense?
+So I wonder, as some have postulated, was there a time before time?  Supposedly the 'big bang' occurred in about 10^-45 seconds--an infinitesimally miniscule time which  possibly was the beginning of time.  How does that really make sense?
 
 And, as Einstein supposedly quipped concerning the relativity of time: "How long a minute is depends on which side of the bathroom door you are on."
 

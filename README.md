@@ -7,7 +7,7 @@ ___
 
 May 18:
 
-Time is our only possession (my high school senior thesis) and yet it is a slippery bugger of unclear and inconsistent (some would say individual) dimensions.  On one hand, we live in the enternal now as everything is always happening NOW, yet this is a past and we depend on an as yet unseen future.
+Time is our only possession (my high school senior thesis) and yet it is a slippery bugger of unclear and inconsistent (some would say individual) dimensions.  On one hand, we live in the enternal now as everything is always happening NOW, yet there is a past and we depend on an as yet unseen future.
 
 NOW is like a mathematical point on a line with perhaps one or more likely zero dimensions.  Unlike lines, which are 2-dimensional strings of points, or spaces, which are 3-dimensional, you cannot measure a point.  In some ways, it is just a connection of what is left of it with what is right of it.  Similarly NOW is the connection from past to future.  It is 'instantaneous' but without measure.  NOW is the funnel or filter from which the future converts to the past...suggesting an apt analogy of an 'hour glass.'
 

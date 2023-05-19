@@ -5,6 +5,11 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 ___
 
+May 19
+
+![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/f780e8bd-9f3e-4e81-b20b-35b276c27a7b)
+
+
 May 18:
 
 Time is our only possession (my high school senior thesis) and yet it is a slippery bugger of unclear and inconsistent (some would say individual) dimensions.  On one hand, we live in the enternal now as everything is always happening NOW, yet there is a past and we depend on an as yet unseen future.

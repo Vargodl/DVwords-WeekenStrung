@@ -5,6 +5,39 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 ___
 
+May 18:
+
+Time is our only possession (my high school senior thesis) and yet it is a slippery bugger of unclear and inconsistent (some would say individual) dimensions.  On one hand, we live in the enternal now as everything is always happening NOW, yet this is a past and we depend on an as yet unseen future.
+
+NOW is like a mathematical point on a line with perhaps one or more likely zero dimensions.  Unlike lines, which are 2-dimensional strings of points, or spaces, which are 3-dimensional, you cannot measure a point.  In some ways, it is just a connection of what is left of it with what is right of it.  Similarly NOW is the connection from past to future.  It is 'instantaneous' but without measure.  NOW is the funnel or filter from which the future converts to the past...suggesting an apt analogy of an 'hour glass.'
+
+I think that most people live in the now but forward looking (into the future to direct their paths).  I have found that, as I'd hoped and intended, in retirement, I am living in the now but directionally planning for the future but also (as I'd hoped for many years) reviewing past thoughts and experienced in the greater depth because of the lack of daily external urgencies, distractions and responsibilities of employed life.   So, though I've always been reflective, my mirrors are shinier, more prismatic and in much better focus now.  
+
+So I wonder, as some have postulated, was there a time before time?  Supposedly the 'big bang' occurred in about 10^-45 seconds--and infinitesimally miniscule time which  possibly was the beginning of time.  How does that really make sense?
+
+And, as Einstein supposedly quipped concerning the relativity of time: "How long a minute is depends on which side of the bathroom door you are on."
+
+One recent yet major exception to the infinitesimal now that we’ve all recently experienced is the Covid pandemic a worrisome possibly fatal 3 year “now!”
+
+NOW is like the interface between oil and water. Nothing actually exists there in the separation, just the two opposing non mixing fluids, like NOW is the immeasurable interface between future and past, tomorrow and yesterday…even a microsecond before and a microsecond second past. 
+
+Yet, colloquially (and tautologically), tomorrow is just another day. 
+
+Eventually, the next day after the next day after next day after the next day becomes…tomorrow.
+
+Lost time is never found again.
+-BENJAMIN FRANKLIN 
+
+Spiegel im Spiegel for Cello and Piano (Arvo Pärt): https://youtu.be/FZe3mXlnfNc
+
+Note: The second intermittent audiojourdemain missive, a meditative gratitudinal, was recorded in Vargoladz discord.
+
+
+…just one more thing:
+
+“I don’t want to get to the end of my life and find that I just lived the length of it. I want to live the width of it as well.” —Poet Diane Ackerman
+
+___
 May 17
 
 ![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/083dcb54-8823-4978-b597-64f3540c97e9)

@@ -7,6 +7,8 @@ ___
 
 May 19
 
+Not that I really care but today is National Pizza Party Day.  I wonder which pizza chain started this 'holiday'?
+
 ![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/f780e8bd-9f3e-4e81-b20b-35b276c27a7b)
 
 

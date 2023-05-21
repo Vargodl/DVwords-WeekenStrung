@@ -5,6 +5,32 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 ___
 
+May 20
+
+History is a conversation and sometimes a shouting match between present and past, though often the voices we most want to hear are barely audible.
+- Laurel Thatcher Ulrich
+
+“There are three classes of people: those who see, those who see when they are shown, those who do not see,” says Leonardo da Vinci.
+
+
+
+A lifespan is a short ongoing span of now, dragging a short tail of a past, of indeterminant length with the individual possessing it never knowing that it ends, how it ends, when it ends.  Consciousness probably ends before the consciousness of the end (which never comes because the consciousness ended first). For the person/experiencing, her/s ‘now’ stops in medias res.
+
+Life is like a vine of cherry tomatoes, each with seeds which, like the meanings and significances of life, are difficult to pin down.  When you think you are about to ‘pin down’ a meaning, like a tomato seed, it squirts away.
+
+At the other extreme of the universal timeline (a la Tonelli):
+
+Roughly 1 trillion years from now, the last star will be born. In about 100 trillion years, the last light will go out. The bad news is that the universe is going to die a slow, aching, miserable death. The good news is that we won't be around to see it.
+
+
+…and just one more thing:
+
+"Any Leopolds today?" (a reference to The Paris Bookseller, by Kerri Maher
+
+
+![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/a2464e36-3c86-4ad6-8548-3a1d1aa6955a)
+
+____
 May 19
 
 Not that I really care but today is National Pizza Party Day.  I wonder which pizza chain started this 'holiday'?

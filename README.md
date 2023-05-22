@@ -14,9 +14,9 @@ I finished The Paris Bookseller yesterday--surprised to learn that the current S
 
 Whitman's shop opened just two years before his friend Lawrence Ferlinghetti co-founded City Lights in San Francisco (which Margie and I visited bfore Ferlinghetti died (aged 101) when we lived in San Francisco). 
 
-I've been to Shakeseare and Company several times--it is one of my 'must-stops' on each trip to Paris.  I have also purchased things from them, including rare books and, last year, a newly printed edition of Ulysses which they put out for its 100th anniversary.
+I've been to Shakeseare and Company several times--it is one of my 'must-stops' on each trip to Paris.  I have also purchased things from them, including rare books and, last year, a newly printed edition of Ulysses which they put out for its 100th anniversary.  About3 years ago, I also purchased the book which the bookstore published in 2016 of its own history (Shakespeare and Company, Paris: A History of the Rag & Bone Shop of the Heart).  I'll plan to peruse that before our visit.
 
-i started reading Nabokov's Despair today  Will (re-)read Hemingway's Mobile Feet before our upcoming trip.
+i started reading Nabokov's Despair today  Will (re-)read Hemingway's Mobile Feet before our upcoming trip as well.
 
 “Touch me. Soft eyes. Soft soft soft hand. I am lonely here. O, touch me soon, now. What is that word known to all men? I am quiet here alone. Sad too. Touch, touch me.”
 

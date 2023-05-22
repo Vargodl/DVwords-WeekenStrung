@@ -8,7 +8,7 @@ ___
 May 22
 
 A bit of a (covid negative x 2) cold.  Wispy cotton clogging my lateral cerebral ventricles.
-I REFUSE toget covid but how did i catch an URI?
+I REFUSE to get covid but how did i catch an URI?
 
 “Touch me. Soft eyes. Soft soft soft hand. I am lonely here. O, touch me soon, now. What is that word known to all men? I am quiet here alone. Sad too. Touch, touch me.”
 

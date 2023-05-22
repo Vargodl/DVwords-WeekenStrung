@@ -10,7 +10,7 @@ May 22
 A bit of a (covid negative x 2) cold.  Wispy cotton clogging my latero-posterior cerebral ventricles (though not, fortunately, the optic occiput).
 I REFUSE to get covid but how did i catch an URI?
 
-I finished The Paris Bookseller yesterday--surprised to learn that the current Shakespeare and Company is not the original, legacy Shakespeare and Company that Sylvia Beach opened in 1919.  She closed that due to WWII in 1941 and George Whitman (unclear if he was related to Walt, who was a big piece of Slyvia's store) opened what was originally called La Mistral in 1951 (another American bookstore in Paris) at a different location where it currently still is.  Sylvia Beach visited Whitman's store and is said to have called it the "spiritual successor" to hers.  He renamed it Shakespeare and Company in 1964, Shakespeare's 400th birthday, to honor the original...and named his daughter Sylvia--possibly even Sylvia Beach Whitman. The shop's motto, "Be Not Inhospitable to Strangers Lest They Be Angels in Disguise", is written above the entrance to the reading library. George, who seems quite a literary traveller, died at the ripe age of 98 in 2011.  His daughter Sylvia now runs it.
+I finished The Paris Bookseller yesterday--surprised to learn that the current Shakespeare and Company is not the original, legacy Shakespeare and Company that Sylvia Beach opened in 1919.  She closed that due to WWII in 1941 and George Whitman (unclear if he was related to Walt, who was a big piece of Slyvia's store) opened what was originally called La Mistral in 1951 (another American bookstore in Paris) at a different location where it currently still is.  Sylvia Beach visited Whitman's store and is said to have called it the "spiritual successor" to hers.  He renamed it Shakespeare and Company in 1964, Shakespeare's 400th birthday, to honor the original...and named his daughter Sylvia--possibly even Sylvia Beach Whitman. The shop's motto, "Be Not Be Inhospitable to Strangers Lest They Be Angels in Disguise", is written above the entrance to the reading library. George, who seems quite a literary traveller, died at the ripe age of 98 in 2011.  His daughter Sylvia now runs it.
 
 Whitman's shop opened just two years before his friend Lawrence Ferlinghetti co-founded City Lights in San Francisco (which Margie and I visited when we lived in San Francisco before Ferlinghetti died (aged 101)). 
 
@@ -25,7 +25,7 @@ i started reading Nabokov's Despair today  Will (re-)read Hemingway's Mobile Fee
 
 
 
-,,,and just (to reiterate) one more thing, "Be Not Inhospitable to Strangers Lest They Be Angels in Disguise."
+,,,and just (to reiterate) one more thing, "Be Not Be Inhospitable to Strangers Lest They Be Angels in Disguise."
 
 ___
 

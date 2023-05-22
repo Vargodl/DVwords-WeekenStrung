@@ -14,13 +14,16 @@ I finished The Paris Bookseller yesterday--surprised to learn that the current S
 
 Whitman's shop opened just two years before his friend Lawrence Ferlinghetti co-founded City Lights in San Francisco (which Margie and I visited when we lived in San Francisco before Ferlinghetti died (aged 101)). 
 
-I've been to Shakeseare and Company several times--it is one of my 'must-stops' on each trip to Paris.  I have also purchased things from them, including rare books and, last year, a newly printed edition of Ulysses which they put out for its 100th anniversary.  About3 years ago, I also purchased the book which the bookstore published in 2016 of its own history (Shakespeare and Company, Paris: A History of the Rag & Bone Shop of the Heart).  I'll plan to peruse that before our visit.
+I've been to Shakeseare and Company several times--it is one of my 'must-stops' on each trip to Paris.  I have also purchased things from them, including rare books and, last year, a newly printed edition of Ulysses which they put out for its 100th anniversary.  
+
+“Touch me. Soft eyes. Soft soft soft hand. I am lonely here. O, touch me soon, now. What is that word known to all men? I am quiet here alone. Sad too. Touch, touch me.”
+Excerpt From Ulysses James Joyce
+
+About 3 years ago, I also purchased the book which the bookstore published in 2016 of its own history (Shakespeare and Company, Paris: A History of the Rag & Bone Shop of the Heart).  I'll plan to peruse that before our visit.
 
 i started reading Nabokov's Despair today  Will (re-)read Hemingway's Mobile Feet before our upcoming trip as well.
 
-“Touch me. Soft eyes. Soft soft soft hand. I am lonely here. O, touch me soon, now. What is that word known to all men? I am quiet here alone. Sad too. Touch, touch me.”
 
-Excerpt From Ulysses James Joyce
 
 ,,,and just (to reiterate) one more thing, "Be Not Inhospitable to Strangers Lest They Be Angels in Disguise."
 

@@ -12,7 +12,7 @@ I REFUSE to get covid but how did i catch an URI?
 
 I finished The Paris Bookseller yesterday--surprised to learn that the current Shakespeare and Company is not the original, legacy Shakespeare and Company that Sylvia Beach opened in 1919.  She closed that due to WWII in 1941 and George Whitman (unclear if he was related to Walt, who was a big piece of Slyvia's store) opened what was originally called La Mistral in 1951 (another American bookstore in Paris) at a different location where it currently still is.  Sylvia Beach visited Whitman's store and is said to have called it the "spiritual successor" to hers.  He renamed it Shakespeare and Company to honor the original...and named his daughter Sylvia.  He renamed it in 1964, Shakespeare's 400th birthday. The shop's motto, "Be Not Inhospitable to Strangers Lest They Be Angels in Disguise", is written above the entrance to the reading library. George, who seems quite a literary traveller, died at age the ripe age of 98 in 2011.  His daughter Sylvia now runs it.
 
-Whitman's shop opened just two years before his friend Lawrence Ferlinghetti co-founded City Lights in San Francisco (which Margie and I visited bwfore Ferlinghetti died when we lived in San Francisco). 
+Whitman's shop opened just two years before his friend Lawrence Ferlinghetti co-founded City Lights in San Francisco (which Margie and I visited bfore Ferlinghetti died (aged 101) when we lived in San Francisco). 
 
 I've been to Shakeseare and Company several times--it is one of my 'must-stops' on each trip to Paris.  I have also purchased things from them, including rare books and, last year, a newly printed edition of Ulysses which they put out for its 100th anniversary.
 

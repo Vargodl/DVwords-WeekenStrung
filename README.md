@@ -5,6 +5,17 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 ___
 
+May 22
+
+A bit of a (covid negative x 2) cold.  Wispy cotton clogging my lateral cerebral ventricles.
+I REFUSE toget covid but how did i catch an URI?
+
+“Touch me. Soft eyes. Soft soft soft hand. I am lonely here. O, touch me soon, now. What is that word known to all men? I am quiet here alone. Sad too. Touch, touch me.”
+
+Excerpt From Ulysses James Joyce
+
+___
+
 May 20
 
 History is a conversation and sometimes a shouting match between present and past, though often the voices we most want to hear are barely audible.  - Laurel Thatcher Ulrich

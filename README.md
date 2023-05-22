@@ -10,13 +10,17 @@ May 22
 A bit of a (covid negative x 2) cold.  Wispy cotton clogging my latero-posterior cerebral ventricles (though not, fortunately, the optic occiput).
 I REFUSE to get covid but how did i catch an URI?
 
-I finished The Paris Bookseller yesterday--surprised to learn that the current Shakespeare and Company is not the original, legacy Shakespeare and Company that Sylvia Beach had.  She closed that due to WWII and George Whitman (unclear if he was related to Walt, who was a big piece of Slyvia's store) opened what was originally called La Mistral (another American bookstore in Paris) at a different location where it currently still is.  He renamed it Shakespeare and Company to honor the original...and named his daughter Sylvia...who now runs it.
+I finished The Paris Bookseller yesterday--surprised to learn that the current Shakespeare and Company is not the original, legacy Shakespeare and Company that Sylvia Beach opened in 1919.  She closed that due to WWII in 1941 and George Whitman (unclear if he was related to Walt, who was a big piece of Slyvia's store) opened what was originally called La Mistral in 1951 (another American bookstore in Paris) at a different location where it currently still is.  He renamed it Shakespeare and Company to honor the original...and named his daughter Sylvia...who now runs it.  He renamed it in 1964, Shakespeare's 400th birthday. The shop's motto, "Be Not Inhospitable to Strangers Lest They Be Angels in Disguise", is written above the entrance to the reading library.
+
+I've been to Shakeseare and Company several times--it is one of my 'must-stops' on each trip to Paris.  I have also purchased things from them, including rare books and, last year, a newly printed edition of Ulysses which they put out for its 100th anniversary.
 
 i started reading Nabokov's Despair today  Will (re-)read Hemingway's Mobile Feet before our upcoming trip.
 
 “Touch me. Soft eyes. Soft soft soft hand. I am lonely here. O, touch me soon, now. What is that word known to all men? I am quiet here alone. Sad too. Touch, touch me.”
 
 Excerpt From Ulysses James Joyce
+
+,,,and just (to reiterate) one more thing, "Be Not Inhospitable to Strangers Lest They Be Angels in Disguise."
 
 ___
 

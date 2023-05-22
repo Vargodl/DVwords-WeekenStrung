@@ -10,6 +10,10 @@ May 22
 A bit of a (covid negative x 2) cold.  Wispy cotton clogging my lateral cerebral ventricles.
 I REFUSE to get covid but how did i catch an URI?
 
+I finished The Paris Bookseller yesterday--surprised to learn that the current Shakespeare and Company is not the kegacy Shakespeare and Company that Sylvia Beach had.  She clised that due to WWII and George Whitman (unclear if he was related to Wal, who was a big piece of Slyvia's store) opened what was originally called La Mistral (another American bookstore in Paris) at a different location where it currently still is.  He renamed it Shakespeare and Company to honor the original...and named his daughter Sylvia...who now runs it.
+
+i started reading Nabokov's Despair today  Will (re-)read Hemingway's Mobile Feet before our upcoming trip.
+
 “Touch me. Soft eyes. Soft soft soft hand. I am lonely here. O, touch me soon, now. What is that word known to all men? I am quiet here alone. Sad too. Touch, touch me.”
 
 Excerpt From Ulysses James Joyce

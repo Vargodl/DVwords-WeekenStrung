@@ -19,7 +19,7 @@ I've been to Shakeseare and Company several times--it is one of my 'must-stops' 
 “Touch me. Soft eyes. Soft soft soft hand. I am lonely here. O, touch me soon, now. What is that word known to all men? I am quiet here alone. Sad too. Touch, touch me.”
 Excerpt From Ulysses James Joyce
 
-About 3 years ago, I also purchased the book which the bookstore published in 2016 of its own history (Shakespeare and Company, Paris: A History of the Rag & Bone Shop of the Heart).  I'll plan to peruse that before our visit.
+About 3 years ago, I also purchased the book which the bookstore published of its own history (Shakespeare and Company, Paris: A History of the Rag & Bone Shop of the Heart, 2016).  I'll plan to peruse that before our visit.
 
 i started reading Nabokov's Despair today  Will (re-)read Hemingway's Mobile Feet before our upcoming trip as well.
 

@@ -5,6 +5,18 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 ___
 
+May 23, 23
+
+1978: A young man goes to Paris and takes a moveable part of that luscious feast with him wherever else he goes.  Doesn"t Tumbleweed, but for inexplicable reasons, Paris it must be...and Je ne regrette rien:
+https://youtu.be/Q3Kvu6Kgp88
+
+https://youtu.be/2_WJLp9frUE
+
+,,,and just one more thing, 
+
+Paris is Not Inhospitable to Strangers but rather t'embrasse dans ses bras.
+___
+
 May 22
 
 A bit of a (covid negative x 2) cold.  Wispy cotton clogging my latero-posterior cerebral ventricles (though not, fortunately, the optic occiput).

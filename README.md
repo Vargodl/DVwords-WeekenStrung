@@ -5,6 +5,28 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 ___
 
+May 24  Vargoladz this evening
+
+First post Covid respiratory infection. With all the previous precautionary protection, we’ve almost forgotten how to become or be ill. Testing negative, “It’s not Covid” is a false flag of careless courage.
+
+Like Paul at the gym, “I’m not feeling well but I tested and it’s not Covid” apparently makes it excusable to bring your other infectious messes with you wherever you go...including the gym and other public places.
+
+Margie now also has my cold and we realize we should have acted as if and worn masks to protect each other (really me protect her).   Lessons only partially learnt. Seems like we’ve forgotten that we are not virgins to infection so we erroneously think it is ok if we practice unsafely. Interesting that!
+
+
+Some Paris, je t'aime classic fun:
+https://youtu.be/8PYdbl5naDU
+
+
+...and just one more thing:
+
+A school in Miami just banned Amanda Gorman's Inaugural (Biden's) poem "The Hill We   What a travesty and a shame!  So very shortsighted by people shooting themselves in the feet and cutting off their own noses.
+
+Banning books is a waste of time. People can usually find ways to access the forbidden. Students can usually find the dirty books. 
+Forbidding stokes desire. 
+Burning or banning ideas, of which books are mere records, is futile. 
+___
+
 May 23, 23
 
 1978: A young man goes to Paris and takes a moveable part of that luscious feast with him wherever else he goes.  Doesn"t Tumbleweed, but for inexplicable reasons, Paris it must be...and Je ne regrette rien:
@@ -12,7 +34,7 @@ https://youtu.be/Q3Kvu6Kgp88
 
 https://youtu.be/2_WJLp9frUE
 
-,,,and just one more thing, 
+...and just one more thing, 
 
 Paris is Not Inhospitable to Strangers but rather t'embrasse dans ses bras.
 ___

@@ -20,7 +20,7 @@ https://youtu.be/8PYdbl5naDU
 
 ...and just one more thing:
 
-A school in Miami just banned Amanda Gorman's Inaugural (Biden's) poem "The Hill We   What a travesty and a shame!  So very shortsighted by people shooting themselves in the feet and cutting off their own noses.
+A school in Miami just banned Amanda Gorman's Inaugural (Biden's) poem "The Hill We Climb."  What a travesty and a shame!  So very shortsighted by people shooting themselves in the feet and cutting off their own noses.
 
 Banning books is a waste of time. People can usually find ways to access the forbidden. Students can usually find the dirty books. 
 Forbidding stokes desire. 

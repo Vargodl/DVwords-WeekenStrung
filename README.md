@@ -7,6 +7,10 @@ ___
 
 May 27
 
+Silence is not the absence of something but the presence of everything.
+
+GORDON HEMPTON
+
 https://youtu.be/bjrOcrisGyI
 Who knows what tomorrow brings
 In a world few hearts survive

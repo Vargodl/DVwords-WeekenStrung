@@ -8,7 +8,11 @@ ___
 
 May 28
 
-In less than 10 minutes the finale of Succession begins--the literal beginning of the end.  I do not expect to be disappointed in the expected dusappointment that the finale won't live up to the unbelievably hyped expectstions.  I have many thoughts which I'll share later--especially about the knifeblade named Shiv (akin to Kinch from Ulyssez).  I mainly hope I am not disappointed and we are 'gregged' by Greg taking over.  that seems absurd and ridiculous to me      
+In less than 10 minutes the finale of Succession begins--the literal beginning of the end.  I do not expect to be disappointed in the expected dusappointment that the finale won't live up to the unbelievably hyped expectstions.  I have many thoughts which I'll share later--especially about the knifeblade named Shiv (akin to Kinch from Ulyssez).  I mainly hope I am not disappointed such that we are 'gregged' by Greg taking over.  that seems absurd and ridiculous to me.   
+
+well, my expected disappointment was eell-founded.  In the too topsy-turvy, let's keep flopping until the doomsday clock is sbout to strike, this time Kendall is drfinitely 'Shivved,' Rome is out to lunch and Kendall is the Ken doll that never gets to be prom king.  Tom becomes weird week snivvely CEO.  I'm not exactly sure where Greg ends up but I am sure that I don't care.
+
+Thst's over  at least.
 ___
 
 May 27

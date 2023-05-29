@@ -3,6 +3,12 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty or the ~10% who were, from time to time (though some more than others) absolutely crazy.
 
+
+___
+
+May 28
+
+In less than 10 minutes the finale of Succession begins--the literal beginning of the end.  I do not expect to be disappointed in the expected dusappointment that the finale won't live up to the unbelievably hyped expectstions.  I have many thoughts which I'll share later--especially about the knifeblade named Shiv (akin to Kinch from Ulyssez).  I mainly hope I am not disappointed and we are 'gregged' by Greg taking over.  that seems absurd and ridiculous to me      
 ___
 
 May 27

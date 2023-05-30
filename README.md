@@ -3,7 +3,24 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty or the ~10% who were, from time to time (though some more than others) absolutely crazy.
 
+___
 
+MAY 29
+
+Interestingly, it seems to me that there are several not necessarily aligned or consistent modern trends in feminism: (1) women comedians sharing raunchy female sex jokes a la ‘locker room’ (Amy Schumer, Wanda Sykes and Sarah Silverman), (2) empowerment and (3) enhanced focus on female sexual anatomy and hormones and satisfaction.  There is new focus on menopausal experiences and potential treatments. Also a seemingly growing expertise in pelican health, alignment and benefits of lubrication.  
+
+In some ways, this is also reflected in the role of Shiv in just recently departed Succession.  She was the daddy’s girl who seemed to stand for everything he didn’t—until she decided to get on the bandwagon and was immediately welcomed back by her prodigal’s father—Wayward disrespecting daughter brought back into fold with special position. He teased her (like her brothers) with being his chosen.  Then she, like potentially all women, she takes the magic, uniquely female step of becoming pregnant.  In her world, it is an almost non-existent event which she uses in a ‘knowledge is power’ kind of way.  When she finally tells Tom, he questions if it is a ploy.  …and then, at the funeral, she essentially says she’d act like her mother and outsource parenting.
+
+To paraphrase Logan Ray, Tina Turner sang, “Who needs a heart when a heart can be broken?’’
+
+Certainly, there is also quite a conservative backlash to empowered women, with abortion potential.  Sadly it is a growing backlash…and so it goes…backward!
+
+Memorial weekend is ending…the unofficial beginning of summer. In honor of this, here is the Summer version of Hot Stuff.  https://youtu.be/nYMeJSehCe4
+(Sung by Boston’s own Donna Summer [who took the name from her first husband, last named Sommer]).
+
+…and one more thing:
+
+Except for extremes, there is nothing wrong with white privilege, except for the adjective.  In other words, everyone should be similarly (and significantly) privileged.
 ___
 
 May 28

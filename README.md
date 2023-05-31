@@ -4,7 +4,7 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty or the ~10% who were, from time to time (though some more than others) absolutely crazy.
 
 ___
-May 30
+May 31
 
 Tomorrow is the beginning of Pride Month...and I fear that pride is under increasing attack.  I am completely supportive, though I did need to become more aware before I was.  I do wonder if things went too far too fast and therefore the extent of the back
 lash.
@@ -12,14 +12,12 @@ lash.
 Notice, that there is a duo, awkwardly named perhaps, who, among many others, will be celebrating   
 
 ClitSplash was founded in 2020 by two writers—one Italian and one Cuban—and came from the idea that the Web3 space was basically 90 percent cisgender male, and this created an echo chamber effect. ClitSplash stands for sexual liberation, equal representation, and diverse perspectives on human sexuality to showcase digital art by women, queer, trans, and other sex-positive groups to create a new, authentic narrative in the digital space.  
+___
+May 30
 
 Yesterday I mentioned several possibly divergent aspects of feminism.  This is not a bad thing, suggesting the wonderful difficulty of different facets and points of view when released from strictures and expectations. Yet I wonder, a bit sheepishly dubiously, do most women have the same sex drive as men. Not st stereotypically, for the most part seemingly most women have a less obvious sex drive except for those not afraid of the smear of sluttishness (which is clearly a double standard for the most part propogated by mothers AND fathers) and those who have no fear of pregNOTcy.
 
 It is liberating to be able to be liberated.
-
-
-
-
 
 ___
 

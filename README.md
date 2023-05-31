@@ -6,6 +6,8 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 ___
 May 31
 
+Walt Whitman born 1819--significant influencer of the many of us who 'sing ourselves.'--James Joyce, Sylvia Beach, Ernest Hemingway, me, etc.
+
 Tomorrow is the beginning of Pride Month...and I fear that pride is under increasing attack.  I am completely supportive, though I did need to become more aware before I was.  I do wonder if things went too far too fast and therefore the extent of the back
 lash.
 

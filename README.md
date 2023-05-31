@@ -11,9 +11,19 @@ Walt Whitman born 1819--significant influencer of the many of us who 'sing ourse
 Tomorrow is the beginning of Pride Month...and I fear that pride is under increasing attack.  I am completely supportive, though I did need to become more aware before I was.  I do wonder if things went too far too fast and therefore the extent of the back
 lash.
 
-Notice, that there is a duo, awkwardly named perhaps, who, among many others, will be celebrating   
+Notice, that there is a duo, awkwardly named perhaps, who, among many others, will be celebrating pride:
 
 ClitSplash was founded in 2020 by two writers—one Italian and one Cuban—and came from the idea that the Web3 space was basically 90 percent cisgender male, and this created an echo chamber effect. ClitSplash stands for sexual liberation, equal representation, and diverse perspectives on human sexuality to showcase digital art by women, queer, trans, and other sex-positive groups to create a new, authentic narrative in the digital space.  
+
+...just one more thing:
+
+(to truncate Bukowski):
+
+air and light and time and space
+only create 
+a longer life to find
+new excuses
+for.
 ___
 May 30
 

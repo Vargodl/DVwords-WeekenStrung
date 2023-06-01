@@ -23,9 +23,13 @@ ClitSplash was founded in 2020 by two writers—one Italian and one Cuban—and 
 (to truncate Bukowski):
 
 air and light and time and space
+
 only create 
+
 a longer life to find
+
 new excuses
+
 for.
 ___
 May 30

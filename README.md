@@ -8,7 +8,7 @@ May 31
 
 Walt Whitman born 1819--significant influencer of the many of us who 'sing ourselves.'--James Joyce, Sylvia Beach, Ernest Hemingway, me, etc.
 
-![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/c619eee9-829c-4c4f-bcbc-e90bc50e75ea)
+![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/9cce3f06-2192-4dd8-9792-9a2823506c5e)
 
 
 Tomorrow is the beginning of Pride Month...and I fear that pride is under increasing attack.  I am completely supportive, though I did need to become more aware before I was.  I do wonder if things went too far too fast and therefore the extent of the back

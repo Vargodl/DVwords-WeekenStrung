@@ -8,6 +8,25 @@ June 4
 
 ![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/c3564e01-0461-4b73-ab74-54355e51dd79)
 
+The first version is often the worst—in part because follow ups tease out the weaknesses of the first version and improve upon them. Like life, we get better from our tries and errors. 
+
+How lucky I am to be able to share time together with Margie, begin with our pleasant sharing of the morning over coffee and tea—I wish the same for others…in fact, I encourage everyone to prioritize it. 
+
+I am luckier, I think than others are—at least than they are aware for them or me. That is probably just an optimistic attitude but, instead of -destructive, it is self-fulfilling. 
+
+My dad embodied and instilled many good attitudes. One was a smiling sincere through-the-bone-marrow optimism. In addition, he also was family-focused, hard work, believed in the goodness of people and always getting better, learning, questioning and education, especially higher education.
+
+There are many ways we self-harm, sabotage, destruct, detract. How much longer healthier better if we didn’t. We are own worst telomere shorteners. 
+
+I wonder what would life be like…and how long would it be without self-sabotage and natural external damages and disasters.
+
+Every unhappiness is unique.
+
+…and one more thing:
+
+
+Love Is Love!
+
 ___
 June 2
 

@@ -14,7 +14,7 @@ How lucky I am to be able to share time together with Margie, begin with our ple
 
 I am luckier, I think than others are—at least than they are aware for them or me. That is probably just an optimistic attitude but, instead of -destructive, it is self-fulfilling. 
 
-My dad embodied and instilled many good attitudes. One was a smiling sincere through-the-bone-marrow optimism. In addition, he also was family-focused, hard work, believed in the goodness of people and always getting better, learning, questioning and education, especially higher education.
+My dad embodied and instilled many good attitudes. One was a smiling sincere through-the-bone-marrow optimism. In addition, he always  focused on family, hard work, learning, questioning and education, especially higher education. He believed in the goodness of people and the value of self-improvement and always getting better,
 
 There are many ways we self-harm, sabotage, destruct, detract. How much longer healthier better if we didn’t. We are own worst telomere shorteners. 
 

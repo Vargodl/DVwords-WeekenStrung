@@ -3,6 +3,33 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty or the ~10% who were, from time to time (though some more than others) absolutely crazy.
 
+
+___
+June 5
+
+I was Screaming through emails yesterday—finding so many similar lists of life advice and life lessons…a bit redundant actually
+
+Did the Bible actually start on universal Day 3 or 4 with “let there be light?”  So an early bible day could actually be billions of earth years?
+
+Genesis 1
+
+The Beginning
+1 In the beginning God created the heavens and the earth.
+2 Now the earth was formless and empty, darkness was over the surface of the deep, and the Spirit of God was hovering over the waters.
+3 And God said, “Let there be light,” and there was light.
+
+each person’s now is different, unique, individualized
+
+How much more complicated youth sexploration must be these days. No longer just “can I do it, should I do it” (naturally tempered for some by same sex leanings but still usually inclined by implicit expectation toward opposite sex), but now “is gender important to my explorations?” 
+Before it was focused on characteristics of individuals in a different, inexplicable (gender) group: beauty, tits, ass, male pussytropism, etc; now individual characteristics with less gender specific characterization, classification — liking the same things in others you like in yourself.  Do opposites attract?  How opposite do opposites have to be to attract?
+
+Things we only do with our “ones-and-onlies" some of which we then do with the next, although with some different configurations. 
+
+
+…and just one more thing:
+
+Henry David Thoreau once said:
+“It’s not what you look at that matters, it’s what you see.” 
 ___
 June 4
 

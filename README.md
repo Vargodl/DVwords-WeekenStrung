@@ -8,14 +8,6 @@ June 7
 
 Although "the heaventree of stars (are) hung with humid nightblue fruit," (JJUlysses), the east coast sky is socked in with products of combustion from the Canadian wildfires.  I wonder if, in the world correction/protecting/reacting ttself, the smoke clouds are blocking the sun a bit (it has been cooler these last few days...in other words in some ways righting a wrong.
 
-Be careful going in search of adventure - it's ridiculously easy to find.
-~William Least Heat-Moon
-
-
-1/9/90
-
-Gen V (also known as The Boys: Gen V)
-
 "Dream big. Start small. But most of all, start." - Simon Sinek
 
 “Remember, remember, this is now, and now, and now. Live it, feel it, cling to it.”

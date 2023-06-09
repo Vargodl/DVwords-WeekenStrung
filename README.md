@@ -4,6 +4,29 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty or the ~10% who were, from time to time (though some more than others) absolutely crazy.
 
 ___
+June 9
+
+A few thoughts (by myself and others) about knowledge and inquiry:
+
+
+“The highest levels of consciousness are wordless.”  Charles Simic 
+
+Baggini: 
+It is easy to slide from the justified belief that nothing can he known for certain to the deeply sceptical conclusion that nothing is really known at all. Some find this thrilling. But it is also toxic since it leaves us with no reason to believe anything and so no basis upon which to act.
+Fortunately, there is a fatal flaw in the sceptical challenge: it makes an unreasonable demand and then complains that it can't be met. If knowledge has to be 'beyond all doubt, nothing could ever pass the test. However unlikely it is, you can't rule out that the world is a hallucination, a simulation, a dream.
+
+John Searle: I don’t take skepticism seriously. 
+
+'Tir gan teanga, tir gan anam': a land without a language is a land without a soul. (Irish saying)
+
+Paraphrasing Maureen MoGovern, 'Never use someone else’s impairment as a metaphor for your ignorance.'
+
+Paris beckons—an international hub (on and off) for more than 100 years. Quelles Belles Époques!
+
+..and one more thing:
+
+?Question everything?
+___
 June 7
 
 Although "the heaventree of stars (are) hung with humid nightblue fruit," (JJUlysses), the east coast sky is socked in with products of combustion from the Canadian wildfires.  I wonder if, in the world correction/protecting/reacting ttself, the smoke clouds are blocking the sun a bit (it has been cooler these last few days...in other words in some ways righting a wrong.  Global warming countered (in part) by resultant wildfires which emit a 'shield' of smoke.

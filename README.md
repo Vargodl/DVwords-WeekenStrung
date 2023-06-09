@@ -6,7 +6,7 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 ___
 June 7
 
-Although "the heaventree of stars (are) hung with humid nightblue fruit," (JJUlysses), the east coast sky is socked in with products of combustion from the Canadian wildfires.  I wonder if, in the world correction/protecting/reacting ttself, the smoke clouds are blocking the sun a bit (it has been cooler these last few days...in other words in some ways righting a wrong.
+Although "the heaventree of stars (are) hung with humid nightblue fruit," (JJUlysses), the east coast sky is socked in with products of combustion from the Canadian wildfires.  I wonder if, in the world correction/protecting/reacting ttself, the smoke clouds are blocking the sun a bit (it has been cooler these last few days...in other words in some ways righting a wrong.  Global warming countered (in part) by resultant wildfires which emit a 'shield' of smoke.
 
 "Dream big. Start small. But most of all, start." - Simon Sinek
 

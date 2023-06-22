@@ -12,7 +12,8 @@ summer solstice
 
 just recently back from a wonderful week in Paris (more on transporting this moveable feast to Boston) where I enjoyed a fantastic Bloomsday at Shakespeare & Co
 
-![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/e76d4362-e6d9-4f21-94e0-b9791cca9aa0)
+![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/77a181aa-9a89-47ff-be16-a0e66289acb6)
+
 
 
 But...a quick prediction before tomorrow:  The 'party, ego-project' minisub is probably stuck somewhere in the Titanic debris field.  The inhabitants--at least three of which were rich, ego-centric, high-ticket-paying joy riders--will not be found n time (and will only be found in any reasonable time around the Titanic) to be saved. I dont think there was a catastrophic event (implosion or fire) which was an early termination event.

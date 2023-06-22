@@ -10,7 +10,7 @@ summer solstice
 
 50th anniversary of my uncle Albert's industrial electrocution death
 
-just recently back from a wonderful week in Paris (more on transporting this moveable feast to Boston) where I enjoyed a fantastic Bloomsday at Shakespeare & Co
+just recently back from a wonderful week in Paris (more on transporting this moveable feast to Boston) where I enjoyed a fantastic Bloomsday at Shakespeare & Co.  And of course, there was this enigmatic woman at the Louvre:
 
 ![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/77a181aa-9a89-47ff-be16-a0e66289acb6)
 

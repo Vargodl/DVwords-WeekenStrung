@@ -4,6 +4,26 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty or the ~10% who were, from time to time (though some more than others) absolutely crazy.
 
 ___
+June 21
+summer solstice
+50th anniversary of my uncle Albert's industrial electrocution death
+just recently back from a wonderful week in Paris
+But...a quick prediction before tomorrow:  The 'party, ego-project' minisub is probably stuck somewhere in the Titanic debris field.  The inhabitants--at least three of which were rich, ego-centric, high-ticket-paying joy riders--will not be found n time (and will only be found in any reasonable time around the Titanic) to be saved. I dont think there was a catastrophic event (implosion or fire) which was an early termination event.
+This is, however, an example of the consequences of a series of overweaning hubridites.  Titan, an oxymoronically poorly named and designed pleasure minisub primarily for the rich to hire to go to the sacred watery graveyard of the 'unsinkable' Titanic...is like a thumb in the eye of the gods AND GUESS WHAT?: Titanic 0, Titan 0, gods 2!  And remember: Titan was killed by the 110+ year old, rust bucket of the Titanic....and likely at least 3 people died because they had too much money and they thought they'd do the near impossible (if not the ego-fueled ridiculous).
+
+Oxymandias!  How the might are fallen!
+
+...and just one more thing:
+
+“All man’s miseries derive
+
+from not being able to sit
+
+quietly in a room alone.”
+
+~ Blaise Pascal
+
+___
 June 9
 
 A few thoughts (by myself and others) about knowledge and inquiry:

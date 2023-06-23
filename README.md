@@ -31,6 +31,36 @@ Nuclear propulsion changed a great deal.  these subs are teardrop or bullet shap
 For the submariner, there are two types of ships: submarines and targets.
 
 
+Sea-Fever BY JOHN MASEFIELD
+
+I must go down to the seas again, to the lonely sea and the sky,
+
+And all I ask is a tall ship and a star to steer her by;
+
+And the wheel’s kick and the wind’s song and the white sail’s shaking,
+
+And a grey mist on the sea’s face, and a grey dawn breaking.
+
+ 
+I must go down to the seas again, for the call of the running tide
+
+Is a wild call and a clear call that may not be denied;
+
+And all I ask is a windy day with the white clouds flying,
+
+And the flung spray and the blown spume, and the sea-gulls crying.
+
+ 
+I must go down to the seas again, to the vagrant gypsy life,
+
+To the gull’s way and the whale’s way where the wind’s like a whetted knife;
+
+And all I ask is a merry yarn from a laughing fellow-rover,
+
+And quiet sleep and a sweet dream when the long trick’s over.
+
+
+
 ...but just one more thing:
 
 …I, too, continue to hear the Sirens call me to the sea…and to hope that my eventual death, still a lifetime from now, is in its rocking calming sedative rhythmic waving arms—a baptismal transportation to the long beyond.  Returning and untombing my body into seawater and sending my spirit into space and sky. The crashing waves my mourning song and the moon my monument.

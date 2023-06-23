@@ -6,7 +6,7 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 ___
 June 22
 
-Sooooooo...not too surprisingly, Titan and its inhabitants are dead.  What is a bit surprising is that the US Navy probably detected the catastrophic implosion on Sunday, information which thye shared with the appropriate agents.  This doesnt explain about the repetitive noises heard the last few days.
+Sooooooo...not too surprisingly, Titan and its inhabitants are dead.  What is a bit surprising is that the US Navy probably detected the catastrophic implosion on Sunday, information which they shared with the appropriate rescue agents.  This doesnt explain about the repetitive noises heard the last few days.
 
 Sooooo...5 people are unnecesarily dead and many bits of information and cross-accusations about shoddy work are yet to emerge.  I do feel sorry for those who were involved in preparing the vessel for launch -- god forbid there was some human error (which is probably irrefutable).  in some ways, for several of the untrained 'mission specialists,' this is suicide by hubris or suicide by wealth.
 

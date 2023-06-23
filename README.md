@@ -4,6 +4,38 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty or the ~10% who were, from time to time (though some more than others) absolutely crazy.
 
 ___
+June 22
+
+Sooooooo...not too surprisingly, Titan and its inhabitants are dead.  What is a bit surprising is that the US Navy probably detected the catastrophic implosion on Sunday, informati9n which thye shared with the appropriate agents.  This doesnt explain about the repetitive noises heard the last few days.
+
+Sooooo...5 people are unnecesarily dead and many bits of information and cross-accusations about shoddy work are yet to emerge.  I do feel sorry for those who were involved in preparing the vessel for launch -- god forbid there was some human error (which is probably irrefutable).  in some ways, for several of the untrained 'mission specialists,' this is suicide by hubris or suicide by wealth.
+
+I praise all the many involved in the desperate search and I'm glad for them and the families of those lost, that they were able to rsolve this before there was goign to need to be some sort of practical although somewhat arbitrarydecision to wind down the search becuase of futility due to probable asphyxia.  It is interesting to me, hosever, that the finding was around the time of running out of breathablr air.
+
+I'm not an expert or naval engineer but to me, the most likely scenario is that the vessel imploded on its descent to Titanic--probably not too far above the wreck, and split into two parts/debris fields.  It seems unlikely to me that any significant human remains will be retrieved because, unlike the heavy metal debris, the remains were probably significantly shredded and floated away on the internal streams around the seabed, now to be devoured by deep sea sea worms and other denizens.
+
+Based on my understanding of the design of the minisub, I think either the glass domed cap fractured or, more likely, the long sides of the capsule crushed and popped off the nose cone like a tube of toothpaste.  I'm not sure death was instantenous (like 'turning off a switch') but it was probably mercifully quick.  
+
+Remember this was at a very significant depth with tremendous pressures which crushed imploded) the sub. It did not EXplode but IMplode.  This is the submariners concept of 'crush depth,' which is an appropriately descriptive term. This is unlike what happens in airplanes or spaceships in which case the pressure inside rhe tube is approximately atmospheric and the outside pressure is lower (threrfore, explosions outward are possible and 'easy.'  In the case of submarines there are tremendous external pressures on a more or less atmospheric interior.  
+
+
+I may not be expert here, but I am not ignorant either.  I have had a long history of interest in submarines--which began way before I enlisted in the US Navy--which I joined to be in the nuclear submarine service.  This was initially stimulated bybmy dad's pleasant reminuscences of his navy time and significantly stimulated when I met my cousin's cousin, who was in the nuclear sub service. based in Holy Loch Scotland.  In my navy career, I spent a week on a nuke 1/4 of a mile under the sea probably going more than 30 knots during my second year summer rotations.
+
+The modern nuclear navy is a tremendous service.  The original WWII era submarines were essentially ships that could go underwater for a relatively short period of time under battery power (kind of like hybrids today--primarily powered by diesel engines, including to generate the electricit to charge the many batteries.  My dad, who was also in the navy in WWII, mentioned that you could always identify the submariners because they always smelled like deisel fuel.). They were even 'ship shaped' (and, of course, shipshape) with V or wedge shaped hulls which are not good designs to minimize the effects of pressure on crushing or implosion.  
+
+Modern subs also have a significant presence in southeastern Connecticut, where I lived when I worked for Pfizer. State of the art submarines are still being built across the Thames River at Electric Boat, in Groton and one of our sub bases are just a bit further upriver.  When I worked at Pfizer, we would regularly see subs going up and down the riverbgoing out to or coming in from sea.  Although I wasnt in New London on 9-11, I have been told that multiple subs scrambled out to sea on that day, in casecan attack on the basevtook place.  Firther, many retired sub captains live around us.  Had I not left the navy to go to med school, I very well might be one of those retired sub captains today.
+
+
+Nuclear propulsion changed a great deal.  theses subs are teardrop or bullet shaped which evenly distrubte external pressure making them able to go much deeper.  In fact, modern subs are much more stable at depth than on the surface.  AND, because of the nuclear propulsion,ypthey vpcan stay submerged and under power for significant periods of time.  This is why there are now two types of subs: fast-attack and boomers (essentially mobile nuclear missile platforms wrapped within a submarine).  Fast attack subsgo on patrol to fight; boomers stealthily go out to remote undetected locations and wait (usually 4-6 months at a tim) eas a deterrent response.  This is the real 'silent service.' 
+
+For the submariner, there are two types of ships: submarines and targets.
+
+
+...but just one more thing:
+
+…I, too, continue to hear the Sirens call me to the sea…and to hope that my eventual death, still a lifetime from now, is in its rocking calming sedative rhythmic waving arms—a baptismal transportation to the long beyond.  Returning and untombing my body into seawater and sending my spirit into space and sky. The crashing waves my mourning song and the moon my monument.
+
+___
 June 21
 
 summer solstice

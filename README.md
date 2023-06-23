@@ -28,7 +28,9 @@ Modern subs also have a significant presence in southeastern Connecticut, where 
 
 Nuclear propulsion changed a great deal.  these subs are teardrop or bullet shaped which evenly distribute external pressure making them able to go much deeper.  In fact, modern subs are much more stable at depth than on the surface.  AND, because of the nuclear propulsion, they can stay submerged and under power for significant periods of time.  This is why there are now two types of subs: fast-attack and boomers (essentially mobile nuclear missile platforms wrapped within a submarine).  Fast attack subs go on patrol to fight; boomers stealthily go out to remote undetected locations and wait (usually 4-6 months at a tim) as a deterrent response.  This is the real 'silent service.' 
 
+
 For the submariner, there are two types of ships: submarines and targets.
+
 
 
 Sea-Fever BY JOHN MASEFIELD

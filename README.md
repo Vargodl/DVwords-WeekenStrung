@@ -34,6 +34,8 @@ For the submariner, there are two types of ships: submarines and targets.
 
 
 
+
+
 Sea-Fever BY JOHN MASEFIELD
 
 I must go down to the seas again, to the lonely sea and the sky,
@@ -66,7 +68,7 @@ And quiet sleep and a sweet dream when the long trick’s over.
 
 ...but just one more thing:
 
-…I, too, continue to hear the Sirens call me to the sea…and to hope that my eventual death, still a lifetime from now, is in its rocking calming sedative rhythmic waving arms—a baptismal transportation to the long beyond.  Returning and untombing my body into seawater and sending my spirit into space and sky. The crashing waves my mourning song and the moon my monument.
+…I, too, continue to hear the Sirens call me to the sea…and to hope that my eventual death, still a lifetime from now, is in its rocking calming sedative rhythmic waving arms—a baptismal transportation to the long beyond.  Returning and untombing my body into seawater and sending my spirit into space and sky--the crashing waves my mourning song, the moon my monument.
 
 ___
 June 21

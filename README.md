@@ -4,6 +4,94 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty or the ~10% who were, from time to time (though some more than others) absolutely crazy.
 
 ___
+June 26
+
+I will further most recent topics tomorrow but today, I want to remember my only roommate at Brandeis...with whom I recently reconnected. i found out yesterday that he died unexpectedly almost 2 weeks ago.
+
+title:  He probably had rental properties too…a requiem 
+
+      “Twirl around a few times and a life has been lived.” A Hemingway
+
+
+Pray tell
+JV Steven
+
+Magical musician
+  Of cello 
+        guitar 
+            piano  (mom’s baby, grand); 
+        probably others
+Multiple mystories 
+entertaining
+
+…happened to profess
+At bar practice 
+law
+
+Not naïf but 
+  Humbly 
+didn’t know 
+his luck
+
+His
+
+  ever opening doors 
+     (and 
+  —Naked in a Russian banya—
+      legs)
+
+  many gifts.
+
+
+Room mate
+Housemate
+Hand me down girlfriend (
+         or two, 
+         YEAR TWO), almost life
+Hong Kong King dong
+
+I fuckfested the lights out
+….but Tamorro, you got the doubt
+
+
+Pussy paper west on yellow walls
+
+  ever opening doors.
+
+
+Suddenlee
+
+   , 40 years later,
+
+A-not, apparently-OK
+Bearded moose man
+Famlee man without famlee,
+
+   
+   we reconnect.
+
+
+Your mom lives near.
+
+
+
+
+Too soon
+
+Dead
+
+
+(found incidentally 2 Facebook weeks later.)
+
+
+Your black sky death curetted my heart!
+
+
+
+Martha Martha how art thou?
+
+
+___
 June 22
 
 Sooooooo...not too surprisingly, Titan and its inhabitants are dead.  What is a bit surprising is that the US Navy probably detected the catastrophic implosion on Sunday, information which they shared with the appropriate rescue agents.  This doesnt explain about the repetitive noises heard the last few days.

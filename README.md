@@ -8,6 +8,8 @@ June 26
 
 I will further most recent topics tomorrow but today, I want to remember my only roommate at Brandeis...with whom I recently reconnected. i found out yesterday that he died unexpectedly almost 2 weeks ago.
 
+![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/f11f8216-cdad-461b-a6e7-e992d04ec013)
+
 
 
 title:  He probably had rental properties too…a requiem 

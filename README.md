@@ -38,7 +38,8 @@ title:  He probably had rental properties too…a requiem
 
  
 
- …happened to profess
+  
+  …happened to profess
  
  
  At bar practice 
@@ -46,6 +47,7 @@ title:  He probably had rental properties too…a requiem
  
  law
  
+
  
 
  Not naïf but 
@@ -85,6 +87,7 @@ title:  He probably had rental properties too…a requiem
           YEAR TWO), almost life
           
  Hong Kong King dong
+
  
 
  I fuckfested the lights out
@@ -93,7 +96,8 @@ title:  He probably had rental properties too…a requiem
  
 
 
- Pussy paper west on yellow walls
+
+ Black kitten pussy paper west on yellow walls
  
 
    ever opening doors.

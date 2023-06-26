@@ -14,81 +14,126 @@ title:  He probably had rental properties too…a requiem
 
 
  Pray tell
+ 
  JV Steven
 
  Magical musician
+ 
    Of cello 
+   
          guitar 
+         
              piano  (mom’s baby, grand); 
+             
          probably others
+         
  Multiple mystories 
+ 
  entertaining
 
+ 
+
  …happened to profess
+ 
  At bar practice 
+ 
  law
+ 
 
  Not naïf but 
+ 
    Humbly 
+   
  did not know 
+ 
  his luck
 
+ 
+
  His
+ 
 
    ever opening doors 
+   
       (and 
+      
    —Naked in a Russian banya—
+   
        legs)
+       
 
    many gifts.
+   
 
 
  Room mate
+ 
  Housemate
+ 
  Hand me down girlfriend (
+ 
           or two, 
+          
           YEAR TWO), almost life
+          
  Hong Kong King dong
+ 
 
  I fuckfested the lights out
+ 
  ….but Tamorro, you got the doubt
+ 
 
 
  Pussy paper west on yellow walls
+ 
 
    ever opening doors.
+   
 
 
  Suddenlee
+ 
 
     , 40 years later,
+    
 
  A-not, apparently-OK
+ 
  Bearded moose man
+ 
  Famlee man without famlee,
+ 
 
    
     we reconnect.
+    
 
 
  Your mom lives near.
+ 
 
 
 
 
  Too soon
+ 
 
  Dead
+ 
 
 
  (found incidentally 2 Facebook weeks later.)
+ 
 
 
  Your black sky death curetted my heart!
+ 
 
 
 
  Martha Martha how art thou?
+ 
 
 
 ___

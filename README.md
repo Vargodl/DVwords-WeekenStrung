@@ -29,7 +29,8 @@ title:  He probably had rental properties too…a requiem
          
  Multiple mystories 
  
- entertaining
+ entertaining. 
+ 
 
  
 

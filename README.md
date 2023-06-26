@@ -41,6 +41,7 @@ title:  He probably had rental properties too…a requiem
  
  law
  
+ 
 
  Not naïf but 
  

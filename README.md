@@ -8,6 +8,8 @@ June 26
 
 I will further most recent topics tomorrow but today, I want to remember my only roommate at Brandeis...with whom I recently reconnected. i found out yesterday that he died unexpectedly almost 2 weeks ago.
 
+
+
 title:  He probably had rental properties too…a requiem 
 
       “Twirl around a few times and a life has been lived.” A Hemingway

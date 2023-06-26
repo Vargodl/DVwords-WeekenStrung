@@ -13,82 +13,82 @@ title:  He probably had rental properties too…a requiem
       “Twirl around a few times and a life has been lived.” A Hemingway
 
 
-Pray tell
-JV Steven
+ Pray tell
+ JV Steven
 
-Magical musician
-  Of cello 
-        guitar 
-            piano  (mom’s baby, grand); 
-        probably others
-Multiple mystories 
-entertaining
+ Magical musician
+   Of cello 
+         guitar 
+             piano  (mom’s baby, grand); 
+         probably others
+ Multiple mystories 
+ entertaining
 
-…happened to profess
-At bar practice 
-law
+ …happened to profess
+ At bar practice 
+ law
 
-Not naïf but 
-  Humbly 
-didn’t know 
-his luck
+ Not naïf but 
+   Humbly 
+ did not know 
+ his luck
 
-His
+ His
 
-  ever opening doors 
-     (and 
-  —Naked in a Russian banya—
-      legs)
+   ever opening doors 
+      (and 
+   —Naked in a Russian banya—
+       legs)
 
-  many gifts.
-
-
-Room mate
-Housemate
-Hand me down girlfriend (
-         or two, 
-         YEAR TWO), almost life
-Hong Kong King dong
-
-I fuckfested the lights out
-….but Tamorro, you got the doubt
+   many gifts.
 
 
-Pussy paper west on yellow walls
+ Room mate
+ Housemate
+ Hand me down girlfriend (
+          or two, 
+          YEAR TWO), almost life
+ Hong Kong King dong
 
-  ever opening doors.
+ I fuckfested the lights out
+ ….but Tamorro, you got the doubt
 
 
-Suddenlee
+ Pussy paper west on yellow walls
 
-   , 40 years later,
+   ever opening doors.
 
-A-not, apparently-OK
-Bearded moose man
-Famlee man without famlee,
+
+ Suddenlee
+
+    , 40 years later,
+
+ A-not, apparently-OK
+ Bearded moose man
+ Famlee man without famlee,
 
    
-   we reconnect.
+    we reconnect.
 
 
-Your mom lives near.
-
-
-
-
-Too soon
-
-Dead
-
-
-(found incidentally 2 Facebook weeks later.)
-
-
-Your black sky death curetted my heart!
+ Your mom lives near.
 
 
 
-Martha Martha how art thou?
+
+ Too soon
+
+ Dead
+
+
+ (found incidentally 2 Facebook weeks later.)
+
+
+ Your black sky death curetted my heart!
+
+
+
+ Martha Martha how art thou?
 
 
 ___

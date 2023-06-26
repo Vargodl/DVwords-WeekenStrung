@@ -35,7 +35,9 @@ title:  He probably had rental properties too…a requiem
 
  …happened to profess
  
+ 
  At bar practice 
+ 
  
  law
  

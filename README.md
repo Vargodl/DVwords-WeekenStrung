@@ -2,7 +2,34 @@
 PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by me, Dennis Vargo, 2023. 
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty or the ~10% who were, from time to time (though some more than others) absolutely crazy.
+---
+Jun 27: Vargoladz tomorrow; 3 months retired
 
+The super wealthy seem to be achieving Versailles-like status. And some of them are dying in passion ego projects and searches for extremes which only they can afford. These are usually at extremes of pressure—whether in the oceans depths or in the stratosphere—or other scales such as speed or longevity.
+
+Instead of suicide by money, it is probably more like Russian roulette at extremes.  Why not just near asphyxiation?
+
+Most recently this is evident most obviously by the Titan disaster, which galvanized public attention and multinational state of the art rescue attempts for 5 people versus the almost ‘blink and its forgotten’ refugee tragedy in the Mediterranean where perhaps 600 desperate refugees drowned while a Greek rescue vessel essentially looked the other way and did nothing.  I’m not the first to point of the ethical issues and inconsistencies in this.
+
+It is fair to point out that the Titan seemed to be a race against time (a surrogate for oxygen) and there were even some outlets who had an oxygen countdown on.  There is some speculation that this was for naught because they knew the sub imploded on Sunday, squeezed in a death grip along the length of the tube, probably shredding the inhabitants who had little time to know what was happening and so soon afterward we’re pressure emulsified without nervous systems to experience the last minutes of life—>death. 
+Though there is some unclear evidence that they knew they were in trouble (perhaps the acrylic cap what beginning to chatter as the pilot warned…though warning that this would give them enough time to get up to safety) because they dropped their sandbags to initiate a rise. 
+As for the poor refugees, they were also dead almost before they died but they had the bad luck of being ‘too many…nameless…faceless…and likely paying information daily about the sub…so I guess the news cycle still hopes to capitalize on some eyeballs.
+
+How 'Titanic' Obsession Led to 'Titan' Nightmare
+https://people.com/how-titanic-obsession-led-to-titan-nightmare-7553858
+
+
+…and just one more thing:
+
+"I'm in the Now a lot more now 
+
+And here's what's even greater 
+
+I never ever can run out 
+
+There's always more Now later."
+
+— GREG TAMBLY
 ___
 June 26
 
@@ -97,10 +124,10 @@ title:  He probably had rental properties too…a requiem
 
 
 
- Black kitten pussy paper west on yellow walls
+ Blackitten pussy paper west on yellow walls
  
 
-   ever opening doors.
+   and open doors.
    
 
 

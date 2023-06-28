@@ -13,7 +13,10 @@ Most recently this is evident most obviously by the Titan disaster, which galvan
 
 It is fair to point out that the Titan seemed to be a race against time (a surrogate for oxygen) and there were even some outlets who had an oxygen countdown on.  There is some speculation that this was for naught because they knew the sub imploded on Sunday, squeezed in a death grip along the length of the tube, probably shredding the inhabitants who had little time to know what was happening and so soon afterward we’re pressure emulsified without nervous systems to experience the last minutes of life—>death. 
 Though there is some unclear evidence that they knew they were in trouble (perhaps the acrylic cap what beginning to chatter as the pilot warned…though warning that this would give them enough time to get up to safety) because they dropped their sandbags to initiate a rise. 
-As for the poor refugees, they were also dead almost before they died but they had the bad luck of being ‘too many…nameless…faceless…and likely paying information daily about the sub…so I guess the news cycle still hopes to capitalize on some eyeballs.
+
+As for the poor refugees, they were also dead almost before they died but they had the bad luck of being ‘too many…nameless…faceless…and likely paying all the little they had for this last chance.
+
+there is still significant information daily about the sub…so I guess the news cycle still hopes to capitalize on some eyeballs.
 
 How 'Titanic' Obsession Led to 'Titan' Nightmare
 https://people.com/how-titanic-obsession-led-to-titan-nightmare-7553858

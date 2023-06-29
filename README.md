@@ -8,6 +8,7 @@ Jun 29:
  
 ---
 Jun 28: very good Vargoladz a somewhat inexact meandering through a history of society, including slavery, mostly from Greece forward though with some speculation about 'pre-social' cave clans and clusters
+
 ---
 
 Jun 27: Vargoladz tomorrow; 3 months retired

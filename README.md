@@ -3,6 +3,13 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty or the ~10% who were, from time to time (though some more than others) absolutely crazy.
 ---
+---
+Jun 29:
+ 
+---
+Jun 28: very good Vargoladz a somewhat inexact meandering through a history of society, including slavery, mostly from Greece forward though with some speculation about 'pre-social' cave clans and clusters
+---
+
 Jun 27: Vargoladz tomorrow; 3 months retired
 
 The super wealthy seem to be achieving Versailles-like status. And some of them are dying in passion ego projects and searches for extremes which only they can afford. These are usually at extremes of pressure—whether in the oceans depths or in the stratosphere—or other scales such as speed or longevity.

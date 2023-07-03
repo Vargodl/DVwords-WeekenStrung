@@ -6,7 +6,7 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 ---
 July 2:
 
-Our male kitty, Leo (after Ulysses protagonist hero Leopold Bloom) has been ill all week.  It started with an upper respiratory infection treated with antibiotics which resulted in tummy upset, urinary retention and, mostly now anorexia and significant constipation.  He's uncomfortable and we are trying to work him through this.  We are on poop watch.  You can see the rolls of poop in his colon in the xray below:
+Our male kitty, Leo (after Ulysses protagonist hero Leopold Bloom) has been ill all week.  It started with an upper respiratory infection treated with antibiotics which resulted in tummy upset, urinary retention and, mostly now anorexia and significant constipation.  He's uncomfortable and we are trying to work him through this.  We are on poop watch.  You can see the rolls of poop in his colon outlined appropriately in brown in the xray below:
 
 ![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/3bb7277b-9ba9-4764-860b-8ba3446dcd18)
 

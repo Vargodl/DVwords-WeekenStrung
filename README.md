@@ -8,7 +8,8 @@ July 2:
 
 Our male kitty, Leo (after Ulysses protagonist hero Leopold Bloom) has been ill all week.  It started with an upper respiratory infection treated with antibiotics which resulted in tummy upset, urinary retention and, mostly now anorexia and significant constipation.  He's uncomfortable and we are trying to work him through this.  We are on poop watch.  You can see the rolls of poop in his colon in the xray below:
 
-![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/c1e9e7d2-d666-47bc-a80a-ea99b988c27d)
+![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/3bb7277b-9ba9-4764-860b-8ba3446dcd18)
+
 
 
 There is an awkward demographic squeeze coming to a head:  because of the advancements in health care, our population continues to "boom" which has the potential to bankrupt social systems.  That, of course is the demand side.  The supply side is not enough younger workers to feed the social support sausage machine.  This is further compounded by the increasingly educated child bearing female slice of the population who are either (1) having fewer children or (2) not having any children at all instead of career. This is not meant to blame, but to recognize issues.  There are no easy solutions.  From experience, having and raising children is very difficult and life changing.  But it is wonderfully life changing and very meaningful.  I would definitely do it again--at least if I could know I would have the same exceptional sons.

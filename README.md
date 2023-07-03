@@ -4,7 +4,11 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty or the ~10% who were, from time to time (though some more than others) absolutely crazy.
 ---
 ---
-Jun 29:
+July 2:
+
+our male kitty, Leo (after Ulysses protagonist hero Leopold Bloom) has been ill all week.  It started with an upper respiratory infection treated with antibiotics which resulted in tummy upset, urinary retention and, mostly now anorexia and significant constipation.  He's uncomfortable and we are trying to work him through this.  we areon poop watch.
+
+There is an awkward demographic squeeze coming to a head:  because of the advancements in health care, our population continues to "boom" which has the potential to bankrupt social systems.  That, of course is the demand side.  The supply side is not enough younger workers to feed the social support sausage machine.  This is further compounded by the increasingly educated child bearing female slice of the population who are either (1) having fewer children or (2) not having any children at all instead of career. This is not meant to blame, but to recognize issues.  There are no easy solutions.  From experience, having and raising children is very difficult and life changing.  But it is wonderfully life changing and very meaningful.  I would definitely do it again--at least if I could know I would have the same exceptional sons.
  
 ---
 Jun 28: very good Vargoladz a somewhat inexact meandering through a history of society, including slavery, mostly from Greece forward though with some speculation about 'pre-social' cave clans and clusters

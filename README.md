@@ -8,7 +8,7 @@ I intend to obscure specific embarassing intimacies of any specific person, espe
 
 VARGOLADZ went quite well today.  Topics included discussions about Independence Day, travels (of Lex and Win over the next week) and then extensions of last weeks discussion but focussed more on the thin and blurry/grey zone between the transition of life to death.  Examples included the split second of 'forced immediate termination or ending of life' which occurs at cryogenic freezing, what probably happened in the Titan mini-sub, death by GSW (Gun Shot Wound) to the head.  Discussion inclded brain death and what it means, including post-anoxia recovery of cardiovascular function despite dissolved or dissolving brain function.  (vs in the more usual case, cardiovascular function ceases and the brain slowly (over say 4 to 10 minutes or so) as the brains looses its function.  A similar brief discussion focussed on the death of single celled organisms on a microscope slide.  There is not a clear switch point, largely unknown probably because there is not a lot of controlled attemts at reversal over time.
 
-Whether a human organism or a single cell, the physical organism just before 'the moment of death' is no different from just after the moment of death...except that an invisible, unmeasurable life force is gone.
+Whether a human organism or a single cell, the physical organism just before 'the moment of death' is no different from just after the moment of death...except that an invisible, unmeasurable vital life force is gone and when it is gone, maintenance and energy forces cease and entropy, dissolution and chaos begin.  Mitochondria stop mitochondriasizing.
 
 ---
 The Fourth of July

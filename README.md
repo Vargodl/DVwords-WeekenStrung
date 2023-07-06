@@ -3,6 +3,26 @@ PLEASE NOTE: All of these entries which aren't prior art are copyrighted © by m
 
 I intend to obscure specific embarassing intimacies of any specific person, especially my current and previous long term relationships, so some of this will be generalized, anonymized and/or altered for effect to protect the innocent and mock the guilty or the ~10% who were, from time to time (though some more than others) absolutely crazy.
 ---
+The Fourth of July
+INDEPENDENCE DAY
+
+![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/b83177a9-05cc-4e02-819d-81a5d83fed62)
+
+This is the special US holiday of The Fourth of July, celebrating US independence.  This is celebrated across the land with barbecues and other cook-outs and parties as well as widespread parades, events, musical performances and fireworks.
+
+
+I do admit that, despites Joe Biden's optimism,I am quite concerned about this great American experiment.  Despite the truly remarable omniscientselfishless of the strong egos of the founding fathers, there was dedication to democracy and republic--especially George Washington, who could have fairly easily become the first leader and first emperor if the new nation.  But he put ego aside for the republic.  Ego is in short supply these days and the invisible hand is much more selfish and greedier.  The two poles of Americancontinue to separate and partisan is strangling truth, doing right and compromise.
+
+
+PS, Leo is OK.
+
+
+...nonetheless, and just one more thing (which I hope is correct):
+
+As Bilk Clinton said at his 1993 inauguration:
+
+“There is nothing wrong with America that cannot be cured by what is right with America.”
+
 ---
 July 2:
 

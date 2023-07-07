@@ -1478,7 +1478,7 @@ Tomorrow will be a very busy day at Castillo Vargo.
 
 Not only will our road be blocked off so that the marathon can be run safely in front of us, we also need to get our guests into town--one (Julia) by 7:30 so that she can take the bus 26.2 miles to Hopkington to run the race and the second (Jamie) into town after Julia runs by our house so that Jamie can meet Julia somewhere near the finish line.  Julia's sister-in-law is also running the marathon and her accompanying 5 or 6 people might spend some time with us as well.
 
-Julia and Jamie are both professors at the University of Regina (actually rhymes with vagina).  Julia is on staff in kinesiology and below is a link to her discussing this run:
+Julia and Jamie are both professors at the University of Regina.  Julia is on staff in kinesiology and below is a link to her discussing this run:
 
 https://youtu.be/BN5eQ0w7KNE
 
@@ -1528,9 +1528,8 @@ Julia Totosy and friend arrive today to stay with us for a few days so that Juli
 
 Continuing a bit on the theme of Cat-licks from yesterday, many good cathlic boys, especially those who went to parochial schools (as was and did I), grew up wanting to become priests.  A son becoming a priest was the easiest ticket for cathlick parents to get into heaven, it was better than 'don't cross go,' more like chutes and ladders directly into the welcoming and loving arms of God the father, bypassing St Pete at the gates.  Planning to be a priest was the pride of all catholic parents and the boast of families. I was interested in becoming a priest for quite a while and much longer than most, even after high school, even visiting a few seminaries to check out the life a bit.  But some seminarians were weird and not what I would consider holy.  Some seemed to be running from pregnancy scares (as if becoming a priest would curb your lusts or something--we all see how well that went), some were malicious maybe trying to atone for misdeeds of the past (one of the guys told me that when he and his friends were doing LSD, he would buy burning hot pizza and convince then that it wasn't hot and to eat it quickly so that they would burn their tongues and the roofs of their months on the molten cheese--I'm telling you so really weird stuff. And, of course. there were the sexual perverts and deviates.  I'll talk about them later too.
 
-Ultimately and in some ways similar to why I didn't become an OB-GYN, I realized I couldn't be a priest either.  I had already tasted of the tender feminine love lips and I couldn't not do that forever more.  Concerning why I didn't become an OB-GYN, I was too concerned that the access I would get to so many pleasure portals would either really get me in serious trouble OR I would lose my lust because of some of the pathology that I was likely to see (so it was a kind of a 3 little bears situation--either too hot (seminary) or too cold (OB-GYN)).
 
-Remember too that I wss kind of poor and wanted to get a good higher education--wide ranging but including arts, sciences and philosophy (which I guess I ultimately accomplished). The priesthood was a good way to get a good to great education (albeit for the price of your soul and eternal frustration).  This was very true when I was young and certainly true in the medieval period where priests were god's juniors on earth, pretty much unquestioned despite whatever peccadillos they had.
+Remember too that I was kind of poor and wanted to get a good higher education--wide ranging but including arts, sciences and philosophy (which I guess I ultimately accomplished). The priesthood was a good way to get a good to great education (albeit for the price of your soul and eternal frustration).  This was very true when I was young and certainly true in the medieval period where priests were god's juniors on earth, pretty much unquestioned despite whatever peccadillos they had.
 
 And for poor women, getting they to a nunnery was one of the few ways they could avoid the trap of marriage, constant pregnancy and being someone's sexual release.  Sadly that was about as good as it got for women.  They were free from marriage, pregnancy and unwanted porking but as free as slaves who were repressed handmaids of the lord, never taken to bed by the bridegroom. And they had to turn the other way when the priests diddled where they shouldn't. The gift/curse that life is generally quite a long time was tough for the religious because the spirit could sublimate for so long but then the rest of life as a repressed servant was tough, too. 
 
@@ -1615,17 +1614,6 @@ April 12, post VARGOLADS.  Thanks to Donnie and Italianmafia for joining us.
 Concerning mothers, although I don't entirely agree with this interesting quote from A Portrait of the Artist as a Young Man, I do think that it generally applies:
 "Whatever else is unsure in this stinking dunghill of a world a mother’s love is not."
 
-Of the ~ 20 partners I've had in my life time, 3-4 of them had comparable appetites as I did and that was wonderful.  One of them was a woman who was a college senior when I knew her who was living with me for a while.  She used to stay up late studying and come to bed, waking me up by nakedly 'bouncing up and down' on my pogo stick.  Always great to be awaken that way.  That was special.  
-
-She also gave me my first copy of Ulysses (which I still have, very dog-earred though it be) so she clearly has permanently influenced me in several important mind and body ways that I will always remember.  Thanks, Augustina!
-
-Interestingly, a similar response to unilaterally initiated night bonking doesn't generally apply to female partners (from my experience, at least).  In other words, when a female partner loves you so much that she says she wants you as much as you want her and that she is available anytime you want, DON'T think that includes while she is sleeping.
-
-DON'T unilaterally initiate night sex with her while she is sleeping. The fact that she is sleeping could be considered a hint that she is not interested at that moment in being raw dog impaled from behind (it's usualy easier from behind). If you do this, she is never moist enough and really receptive.  Afterwards, you are dopamined and oxytocined easily able to doze off to sleep in heavenly peace, and she is wide awake, damp, unconfortable (likely even sore, you selfish bastard) and NOW SHE WANTS TO SHARE (e.g., TALK ABOUT, aka 'complain') about THAT EXPERIENCE WITH YOU as you further piss her off by continuing to nod off.  Better to take a cold shower (which I don't actually recommend unless you are Wim Hopf) or a mono-a-mono tug.
-
-
-There are many, usually poorly understood stages of the developing sexual relationships including rapacious, ravenous, constant, residual and oh! darn!!!  (Though not necessarily in that order.)  Eventually you realize that it is not a choice between sex and eating, but rather a sequencing decision.  The sooner you learn that, the better off you will be. Eventually you will realize you can have and eat your cake, er, pie.
-
 
 ...and now a message about brotherhood of sorts:
 
@@ -1653,33 +1641,6 @@ Fate, you monster of emptiness, you malevolent whirling wheel-
 happiness is in vain, and always fades away.
    Orff’s Carmina
 
-
-
-Ah! Sex!
-
-I estimate that i have probably had about 20 sexual partners (involving AT LEAST but usually more than mutual nakedness, frottage or some orgiastic experience, usually shared (sequentially but sometimes simultaneously) by both).  Most but not of this was serial monogamy, sometimes serial agony.  Concerning night stands and hat stands, one night stands were very rare...though they occurred, usually with someone I otherwise knew before...and afterwards (though sometimes getting grief afterwards).  My youngest partner was probably 15 when we began our intermittent dalliance.  The oldest was twice my age (le'ts just say she was older than 50).  That didnt end well primarily because after a few times together, I replaced her with a much younger (age congruent) partner.  Though she was a very liberal and educated older woman, I was surprised at how inexperienced she was...even shocked when i added a very slight hint of spice to our vanilla though we were still quite mainstream. It surprises me to realize it is very likely she has died of old age by now (or maybe the rapture of ecstacy?).  
-
-Few of the women were virgins (how archaic is that concept?)...and in each case, I did not 'deflower them' (again, sorry for the medieval botanical reference).  The only non-white (in this case black) woman was a virgin who really seemed to wanted to go all the way but i felt too responible to so casually do that.  But, had I, we likely would have ended up in a longer term relationship--which could have been very nice; I think we were novelties for each other.  (And I realize from chatting with others and from movies that some girls really just 'want to get it over!')  Most though not all were North Americans.  There were several jews, mostly christians and/or spiritual at least.  I am unaware if any were muslim, Wiccan (though some ended up being real witches), or other Eastern religions.  Other than marriage, the longest, which was intermittent, probably lasted 8 years end to end with actual total time as a couple being 3.25 years.  There are at least 3 women (not included in the estimated 20), probably a lot more, that I regret not successfully pursuing more aggressively.  As is known, though, I was  was raised conservatively Catholic which means that I was required to confuse love with lust and have to convince myself I was in love before I could have sex.  The first time I was manually pleased, I literally shook all night because of my Catholic guilt.  The kind and gentle deliverer of such confusing ecstacy was afraid she had seriously hurt me in some inexplicable way.
-
-
-My first boner fide sexual experiences were with a manatee, a chubby spongy walrusy (though not ‘mousy’ except for certain ‘dies di mens’) girl on the girls swim team. It was our high school girls team so not everyone was in peak shape and form (and it took me years to appreciate the efforts of these cornfed fatbergs. As Paul Simon sang in Capeman, “like a ton of corned beef floating in beer.”)  My friends called her ‘manatee’ (sea cow) because of her rotund aquaphilia. She’d had her nose fixed after smashing on the side of the pool in a flip turn (which, sadly likely cost her the only school pool record she was ever going to get—such the cost of too much effort).  As a consequence of the nose mash, her sense of smell wasn’t good—although, unless she smelled like the chlorine in the pool, she usually smelled great (probably a bit overdone because she ‘overtitrated’ due to the nose thing). That being said, she almost always tasted great BUT there was something especially wonderful about the salty taste of her labia after swim practice. We were quite into 69, I think primarily because she was preserving her virginity for an unknown trigger later (which ended up…to my great dismay being xxx right around the time we were ending because she was mad at me and wanted to punish me [which worked very well let me tell you]).  Anyway, I thought she was comfortable gobbling on my stinky schmegmatoous flagrant rampant (to use, I think Philip Roth's Portnoy's Complaint) throbbing cock, spewing its foul hot mushroom milk because, due to her nose job, she couldn’t taste. Interesting afterwards, to sometimes smell YOUR COCK on your bedmate's breath.  Seems though since then, I’ve learned that she…and a fair percentage of woman…ACTUALLY DO LIKE TO SUCK COCK.  There is never the ceasing of wonder!
-
-Most heterosexual want to have their cocks sucked…most gays and women apparently yet inexplicably like to succock.  
-And I have never been with a pussy that I didnt' find pretty, tasty, erotic and pleasing.  
-It wasn’t until the last 15 years or so that I could use the words “pussy” or “cock” with a partner and ask her to ‘suck my cock.’  Prior to that time, I thought that too rude, too private and inappropriate. But as mentioned earlier, I REALLY like pussy!!! 
-
-It wasn’t until the 21st  century that I began to experience the pubic sculpting, runways, skid marks, goatees up to and including the cantatrice chauve of the modern woman’s eschutcheon…and I’m up for it all. Beavers, snatches, coinslots, gossamer Hymenoptera…you name it. I can’t get enough. 
-
-There was a joke when I was in my 20’s and 30’s—
-
-Q:  What is the last sound a pubic hair makes?  
-A:  Pffffttt! (e.g., the sound of being spit out.)
-
-I kept experimenting with flavored and aroma’d (flavored) crotch shampoos/soaps/colognes (cockolones) to see if there was anything that would get a special “that tastes great” reaction to no avail.  I even experimented with flavored food to see if they had an effect though I never found one. I guess it isn’t the taste but the experience.
-
-But then I realized that few really like or focus on the taste. It’s the Lusty erotic desire and/or driven obsession to be there and to share that is the be all end (all). Few are really in it for the taste. The lust center and obsession so overdrives the gustatory center.
-
-Italian women’s netherlips  are slightly gar licky; French women’s clams are oysters in garlic.  Most Jewish women appreciate if you 'challah' down the canyon.  I especially like the taste of freshly washed and dried labia... perhaps with a little chianti!
 
 
 …To quote Samuel Beckett: "Thats how it is on this bitch of an earth"
@@ -1723,32 +1684,6 @@ That is where I am teetering with respect to the active male support of women’
 I consider myself an active supporter and attempted to understand this equality but I admit it is imperfect and in some ways uncomfortable because I’m still a bit insecure in it. Although I came of awareness in the second wave of femnism, I get confused with the “pronoun” titles miss, mrs, Ms. (Of course there’ they/them, etc., but that largely a different though similar story entirely.)
 
 I was very close to my mom growing up and saw her working ALL THE TIME (seemingly) whereas I knew my dad worked hard at his job (and I saw many of the scars and burns he received at work).  But then he came home, did a few jobs as necessary but could relax where my mom never seemed to stop.  That seeming inequity is my early entry into feminism.
-
-Puberty and the Catholic Church kind of messed some of that up for me.  There is something about the female body (this is instinctive, reactive, semi-automatic, I think)—especially the naked body or the braless, nipples blaring tight top (and  many of the other revealing 'coverings' what seem to me to be uncomfortable yet so provocative they push the perve autopilot button) that makes men (at least me) mindless. Love lust sex pleasure procreation, mostly admittedly selfish pleasure—some combination of that and others and feminism is very difficult to rationally support at those times…even as a malefemnist.  Some other “animal brain” which rapidly cycles fast and slow takes over—it’s like the little devil on your left shoulder knocking out the little angel on your right shoulder with sleeping gas.
-
-How/why did this inequity ever come about?  There are no causes but I think I have some postulative explanations, including though not necessarily in any definitive order:
-
-x Women are physically smaller and weaker…better to be subservient than always at unknown risks;
-
-x The obvious physical changes that occur at puberty…triggering male urges and brainlessness  mentioned above
-
-x The male sexual equipment, protruding, penetrative (and relatively quick to erect and be satisfied) vs the inner hidden receptacle of the female…historically a secondary consideration for pleasure (if a consideration).  The external dangling male member is also, because it dangles and jiggles, somewhat self stimulating, making it easy to be further aroused by the female. Once the male has been satisfied, there may not have been the reciprocation of pleasure, perhaps not even the knowledge or desire for it.  (It takes a long time for the male to control himself for mutual pleasure—especially when the ‘heat oft5he moment’ gets uncontrollably hot. (In fact, I sometimes wonder if orgasm is actually pleasurable (I really think it very much is) or merely so programmed, instinctive and automatic that the experiencer isn’t really aware (during as well as anytime after) but goes through a series of mind-altering neurobiological, neurochemical, neurohormonal, neuropheromonal and other mind altering, mind numbing alterations and gyrations which in themselves imbue the experience with a recollection of intense pleasure and the reinforcing mindless urgency to do it over and over…perhaps similar if not identical to rats, cocaine and dopamine? One has to wonder if dpoamine was so named because it turns post-orgasmic man into a dopey character.
-
-x The ability/risk of getting pregnant and pregnancy itself--which can elicit protectiveness and vulnerability--not to mention the miraculous element of the process
-
-x Childbirth, including (historically) high maternal and infant mortality
-
-x Lactation with its seemingly natural purpose and benefits but which keep mothers down (also enhancing the female frontal contour)
-
-x The likely frequent feminine social and emotional abilities to keep peace vs the male “catch and kill” competition.  Even now, boys play at war with Toy soldiers (winners and losers), whereas girls play with their Barbies socializing at tea.  [I know that some of this may be contemporary societal programming.]
-(I think it was Margaret Atwood who wrote: no matter how high the tech, Homo sapiens remains at heart what he's been for tens of thousands of years -the same emotions, the same preoccupations, the same good, bad, and ugly. Were a mixed bag, we humans.
-The genetic familiarity in offspring which keep fathers invested…and protective.
-etc…
-
-I do believe that, in general, progress is being made though it is staccato, backsliding intermittently and, with the repeal of Roe v Wade and the recent judgement by a Texas judge’s ruling on the abortion medication mifepristone.  Having worked in the pharma industry for most of my career, this seems like significant and worrisome judicial overreach which can happen when there is maliscious intent.  The FDA approves drugs, including the approved indications. The judiciary doesn’t have anything to do with this, which is a rigorous scientific review process.  It seems similar to if a Texas judge decided that Jeff Bezos foundation loses its tax benefits (leaving other foundations unaffected).
-It’s like boiling a frog…losing rights slowly, so slowly that you don’t recognize it until it is too late. 
-
-...And its worrisome.
 
 
 April 9
@@ -1880,7 +1815,7 @@ Tomorrow begins Passover which means the JCC is closed for the next 1 1/2 days f
 
 Sadly, in the last year and a half of membership, the JCC has had at least 2 bomb threats…which is unfortunate, frightening and representative of the increasing anti-semitism in most parts of the world, including the USA.
 
-The New England Patriots owner Robert Frost via his Foundation to Combat Antisemitism—introduced the blue square emoji as a symbol of solidarity with the Jewish people as part of the #StandUpToJewishHate campaign.  I support and endorse this. (As an aside, Robert and his recently deceased first wife, Myrna, were great supporters of Brandeis causes.  He probably still is.)
+The New England Patriots owner Robert Kraft via his Foundation to Combat Antisemitism—introduced the blue square emoji as a symbol of solidarity with the Jewish people as part of the #StandUpToJewishHate campaign.  I support and endorse this. (As an aside, Robert and his recently deceased first wife, Myrna, were great supporters of Brandeis causes.  He probably still is.)
 
 #🟦,  #StandUpToJewishHate
 

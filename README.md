@@ -27,7 +27,7 @@ PS, Leo is OK.
 
 ...nonetheless, and just one more thing (which I hope is correct):
 
-As Bilk Clinton said at his 1993 inauguration:
+As Bill Clinton said at his 1993 inauguration:
 
 “There is nothing wrong with America that cannot be cured by what is right with America.”
 
@@ -462,17 +462,11 @@ for.
 ___
 May 30
 
-Yesterday I mentioned several possibly divergent aspects of feminism.  This is not a bad thing, suggesting the wonderful difficulty of different facets and points of view when released from strictures and expectations. Yet I wonder, a bit sheepishly dubiously, do most women have the same sex drive as men. Not st stereotypically, for the most part seemingly most women have a less obvious sex drive except for those not afraid of the smear of sluttishness (which is clearly a double standard for the most part propogated by mothers AND fathers) and those who have no fear of pregNOTcy.
-
 It is liberating to be able to be liberated.
 
 ___
 
 MAY 29
-
-Interestingly, there seem to be several not necessarily aligned or consistent modern trends in feminism: (1) women comedians sharing raunchy female sex jokes a la ‘locker room’ (Amy Schumer, Wanda Sykes and Sarah Silverman), (2) empowerment and (3) enhanced focus on female sexual anatomy and hormones and satisfaction.  There is new focus on menopausal experiences and potential treatments. Also a seemingly growing expertise in pelvic (for some rrason, typo'd to 'pelican') health, alignment and benefits of lubrication.  
-
-In some ways, this is also reflected in the role of Shiv in just recently departed Succession.  She was the daddy’s girl who seemed to stand for everything he didn’t—until she decided to get on the bandwagon and was immediately welcomed back by her prodigal’s father—Wayward disrespecting daughter brought back into fold with special position. He teased her (like her brothers) with being his chosen.  Then she, like potentially all women, she takes the magic, uniquely female step of becoming pregnant.  In her world, it is an almost non-existent event which she uses in a ‘knowledge is power’ kind of way.  When she finally tells Tom, he questions if it is a ploy.  …and then, at the funeral, she essentially says she’d act like her mother and outsource parenting.
 
 To paraphrase Logan Ray, Tina Turner sang, “Who needs a heart when a heart can be broken?’’
 
@@ -720,10 +714,9 @@ https://apple.news/AXrDB5M4fQI686eFn1Fmg6g
 ___
 May 13
 
-Tomorrow is Mothers Day.  From my point of view (not sure if it is appropriate to call it a ‘vantage point’), the role of mother is probably the most unique role there is, especially for human mothers.  It is not only a long period (pre birth but also usually years afterwards) but viscerally close, sharing blood and nutrition, even feeding offspring of the breasts (which we learned ironically in medical school are modified fatty sweat glands which are, none-the-less revered, jeered, pawed and lusted after in our thin-loving society).
+Tomorrow is Mothers Day.  From my point of view (not sure if it is appropriate to call it a ‘vantage point’), the role of mother is probably the most unique role there is, especially for human mothers.  
 
 Few men would want the inconvenience of bearing children for 9 months; the male machinery (embarrassingly boggy in the baggies) is for ‘shooting and leaving,’ 
-Providing the vital fluid so that he can go slay food, compete and fight enemies…in the process likely being killed in those pursuits.  Women are more bodied to receive recumbently, retain the mess of copulation and then grow and nurture the growing brood…individually, collaboratively and socially…then continue to develop the relationship on a more maternal, long term (years) basis. Even to be taken care of afterwards when old and decrepit.
 
 After I graduated from high school, I started using occasional marijuana. There were several times (and very fond memories) of getting stoned and the synesthesia of seeing sound waves coming out of the speakers while listening to Joe Walsh Rocky Mountain Way:
 https://youtu.be/4Fz-mHGXgzs
@@ -841,10 +834,6 @@ ___
 
 May 9
 
-Mystory of herstory (confirmed, at least checked. Without verbal assent but also no reactive denial):
-
-Getting a diagnosis of breast cancer is like being raped by a scary stranger who infects you with herpes…it is very traumatic and you frequently get over the initial assault and infection…but you are never entirely sure when the herpes will next flare. 
-
 Concerning the Chuck coronation, he was anointed in private with holy oils by the Arch of Can’tbury (The Cadbury).  This was a long histories event with strong sacramental  and other religious references. I’m not sure why that is the case, given the general deterioration in religious attendance, but the “Divine Right of Kings” (whatever that means) is invoked. 
 
 The oil has rich symbolism, from the Mount of Olives and spiced (like what his mom had 70years ago) although vegan
@@ -857,16 +846,6 @@ every day I am surprised if I am not surprised
 
 _____
 May 8
-
-This has been an even much better day than expected.
-
-After 10 years, Margie was 'fired' by her oncological surgeon with a 'call us if you need us!'
-
-This is great news as she is 10 years past her 'double fuckerotomy' for early stage breast cancer in her left boob.  She took tamoxifen for 5 years--some, not all, oncologists saying that was overkill.
-
-  Now she is done with all scheduled cancer followup...and we celebrated.
-https://youtu.be/3P9X_o_FMHc
-
 
 I started the day with the pleasant reminiscence of a "Neep, Neep!" see attached:
 ![image](https://user-images.githubusercontent.com/128755897/236987613-1ce13722-f392-4650-8857-2754a761ad8f.jpeg)
@@ -956,7 +935,7 @@ May 4
 
 Words can be powerful, impactful, shocking even mean...but they aren't sticks and stones...they can't hurt you.  They can be loaded but they dont pierce flesh.  The biggest risks are emotional injury or perhaps incitement to violence.  But to let words incite violent behaviour is a choice or at least lack of control.
 
-Jean Carrol, in her trial against D Trump, accuses him of raping her.  She does avoid that word, she maybe the victim but she is denying victimhood.
+Jean Carrol, in her trial against D Trump, accuses him of raping her.  She does not avoid that word, she maybe the victim but she is denying victimhood.
 
 
 I've really enjoyed the following letter about words.  like the author, I modified it and used it as a cover letter and it indeed got me in the door:
@@ -986,7 +965,7 @@ May 3
 I don't generally regugitate VARGOLADZ here but today's was uniquely interesting as I was going to have my MVP (Most Valuable Player) about symbolism and meaning
 ![image](https://user-images.githubusercontent.com/128755897/236116092-6bb78e34-da2f-4598-bf4a-499b20af5a43.jpeg)
 but we really discussed semantics, especially the word RAPE.  The younger others affirmed that the R word shouldn't be used, but should rather be referred to as 'sexual assault.'  I never heard of such a ban and, from a transitive or logical perspective, I would suggest that they don't refer to identical things.  In other words, rape is a sexual assault but sexual assault isn't necesarrily rape.  Sexual assault is a much broader, basket term.  I agree the word 'rape' is a powerful, jarring term--and it should be because it is a horrific, violent act.
-I checked with Margie, too, and she also didn't know that the word was cancelled.  So I'm not sure there is a concensus here...maybe more of a generational thing?
+
 
 Though it shouldn't need to be stated or restated, I think sexual including rape are horrible violations.  I am confident that I never did and I never will commit or condone such acts.
 
@@ -1044,27 +1023,11 @@ I thank the Lord there's people out there like you”
 ML&MH Elton John
 
 
-The first time I performed cunnilingus was in a sleeping bag on the floor of a walk-up college apartment in Terre Haute Indiana—this was SOOOO exciting I had a spontaneous, involuntary back-arching, orgasm, clumsily (I am sure) and uneducatedly, clitorally unawaredly sloppily slurping in the literal lap of sweet lady’s ecstasy. I doubt she had the same experience. 
-
-I thought we would ‘go all the way’ and asked to ‘make love’ to her to which she abruptly ‘broke my zipper’ with a deflating, definitive, very confusing NO!
-
-Eventually, when the time (of the month) was right, we committed our first glorious brain emptying PVI (penile vaginal intromission)—and WHAT AN  e-MISSION IT WAS!!!. We lit an uncontrollable electric wildfire  putting a throbbing, plundering exposed coiled nerve into her warm moist silk purse and depositing my milk money there. We did this in the upper bunk bed of my bedroom while War’s The World Is A Ghetto* https://youtu.be/WFmCCxMp7BE was playing—a seemingly inappropriately titled song was actually rhythmically perfect for sex (slow zoom please). Our ‘Frank Sinatra’ was War!  The World Is A Ghetto obviously became our post-coital private message, our ‘wink! wink!’ song and secret mating call, which I also secretly messaged as last words of my philosophy high school thesis. (“Despite it all, life can be a most amazing experience even if the world is a ghetto.”)
-
-Catholically confused about (eg against artificial) birth control—we ‘got rhythm,’ red wave riding, and interruptus…AND monthly pregnancy scares.  Me every time LITERALLY telling her “we’ll, I guess we have to get married then”, while internally telling myself what a fucking idiot I was, figuratively kicking myself in the head telling myself I must never do that again..but unable to stop myself and reliving the fear of destroying my life EVERY MONTH!  This was especially true one time in the summer when we had our first mutual spontaneous abortion…er, I mean, orgasm, in her back yard.  (Another life begun, mine done.)  I was so ignorant I really thought that the intensity of that mutual event signified a magically successful impregnating. That was stupid, but terrifying. Such the power of lusty youthful sexual urges and the dangers of ignorance. 
-
-
-I now understand why some of the great literature, great wars and many idiotic mistakes have been made. How men are caught ‘in flagrante (and rampante) dicto’ by jealous husbands even though they hear the husband in the house/on the stairs/at the door because they are unable to not have that one last thrust. How ineffective coitus interruptus really is but at the moment the brain ceases to function. Like the reputed (though disproven) dinosaur, it is the lower pelvic brain that thinks it is thinking when in fact only a reflex procreative loop of the 'errant rampant penis' has been engaged.  Not only have thousands of ships been launched, my submarine itself has fired thousands of torpedoes and billions of tiny homuncular swimmer frogmen have died!
-
-Being a ’good’ Catholic girl (who not only couldn’t control her lusts but did not lead me not into temptation but rather led me forth THROUGH her wonderful, silky, wet, receptive and quivering pillars of temptation), she did not believe or support abortion. In fact she was on the debate team to argue against it. Strangely a year or two after we broke up, she wrote me from college and asked me if I would send her $500 so that she COULD have an abortion (not my child).
 
 This song by Chad & Jeremy, is in honor of those clumsy efforts:
 
 https://youtu.be/BSByOeew1rU Chad & Jeremy - Yesterday's Gone (1964)
 
-It wasn’t until the 21st  century that I began to experience the pubic sculpting, lasering, razoring, braziering, runways, skid marks, goatees up to and including the cantatrice chauve of the modern woman’s eschutcheon…and I’m up for it all. Beavers, toes of camels, the other thing that smells like fish, meat flaps, snatches, coinslots, gossamer Hymenoptera…you name it. I can’t get enough. 
-
-
-*most interestingly, in researching this, I have discovered that for all these years, remembered the correct album but the wrong ‘Frank Sinatra’ song of our first PVI. The album was The World is a Ghetto (it was my album and I remember the cover vividly) but the song (and the link) was Four-Cornered Room.  Marcel Proust, even though the madeleine was just as sweet, where’ve you been all these years?
 
 
 ….and just one more thing:
@@ -1346,9 +1309,6 @@ She did sort of give me a chance although she did overdose me on St. Joseph’s 
 
 Life is precious and fragile—and I continue to be very lucky (even if, perhaps, luck includes the luck to realize that if you seek it, you might find it (luck, that is)…in other words, luck may merely be a state of mind.
 
-Interestingly, when she instructed the process for tush-wiping, she never told me to wipe front to back. Was this before she knew?  Did mom ever teach her that?
-
-Women tend to use more tp than men because they also wipe their ‘small front butts’ after peeing.  When a person feels psychologically ‘dirty,’ does s/he use more tp? Are the two related?  I think not. 
 
 You can be anything—or at least continue in that direction. Sadly, there isn’t enough time to do everything, especially because the process and journey to anywhere takes time. 
 
@@ -1368,11 +1328,7 @@ Jim and I were very close growing up; partners in crime and creative destruction
 
 The younger of my two sisters (Bonnie), who was about 2 years older than me, and I were fairly close. She was older than me by years and some of those things which age differently by gender (dating, for example; her boyfriend Chuck P, who was very easy to really like)).  She and I were bookend years in high school. She sort of advised and protected me. She is also the main reason that I didn’t attend the parochial high school that I was registered to attend (next step to the priesthood and all) because she denigrated it compared to the local public high school from which I graduated 50 years ago this summer. Interestingly, she also left our parochial grade school at grade 6 (Thanks Sister unMerry HemmorrhoidFace) to finish in the local public school (Lafayette) whereas Jim and I spent all 8 years at St Adalbert, the same grade school that my mom attended. I remember Jim and I got Bonnie ‘talked to’ by our dad when once she got angry with us and shockingly shouted up the stairs that we were “fucked up fuckers.”   For some strange reason, Bonnie also told me (verbally, procedurally)  how to use toilet paper for butt wiping post poop…take two connected, fold, wipe with one side, fold in half, wipe, fold, wipe, fold…until nothing left, break through or dirty fingers.
 
-When our elder and first sister, Jeri was probably around 13-14 or so, I was sitting next to her on the couch. She was wearing a turtleneck and opened the neck to look at her pert, pubertal boobs.  Not really thinking or expecting anything, I also stuck my head in her turtleneck and saw her perkiness. I was pre-sacramentalled but of course I knew about sin (which I thought I was committing because of my awkward ogling). Knowing about penance for sins but really knowing prayers, I did the only thing I could think of: multiple repetitive sign’s ‘o the cross (SOTC) as penance—which is funny because the SOTC is really a pre-prayer, kind of like saying “I’m about to start (and also finish) praying. So I was not even really praying…really penancing. Ironic!
 
-I also, later, very hornily asked my mom what a vagina was. She embarrassedly and awkwardly responded “It’s like a small front butt.”
-
-…a small front butt!
 
 Here’s to the delayed recognition of the things we blame for happening to us which, in actuality, happened for us. 
 
@@ -1438,8 +1394,6 @@ What a surprisingly painful situation that is, crazy money which will ultimately
 Otherwise, today was another very good day.  Our guests left, hopefully to return to Regina--a possibility but not definite due to up to 30 cm or more of snow. It was a special, great trip--marathon, sports, touring, chats, including about James Joyce.
 
 On top of that, we had another fine VargoLADZ stream, with bhelgator and Donnie joining us.  Topics included the "binary dichotomy" of binary vs non-binary, a bit on gender pronouns and sone MVP discussion (mine being about the power of social connectedness).  A lot of pleasant and provocative banter was shared and volleyed across the virtual aisles and nets.
-
-Margie took Julie and Jaime (just confirmed the spelling today) to Cambridge for sightseeing, shopping and luncheon (after a morning of lemon ricotta pancakes).
 
 I just discovered this interesting book today:
 

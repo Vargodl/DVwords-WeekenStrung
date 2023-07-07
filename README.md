@@ -19,7 +19,9 @@ INDEPENDENCE DAY...VARGOLADZ tomorrow
 This is the special US holiday of The Fourth of July, celebrating US independence.  This is celebrated across the land with barbecues and other cook-outs and parties as well as widespread parades, events, musical performances and fireworks.
 
 
-I do admit that, despites Joe Biden's optimism, I am quite concerned about this great American experiment.  Despite the truly remarkable omniscient selfishless of the strong egos of the founding fathers, there was dedication to democracy and republic--especially George Washington, who could have fairly easily become the first leader and first emperor of the new nation.  But he put ego aside for the republic.  Ego is in short supply these days and the invisible hand is much more selfish and greedier.  The two poles of Americancontinue to separate and partisan is strangling truth, doing right and compromise.
+I do admit that, despites Joe Biden's optimism, I am quite concerned about this great American experiment.  Despite the truly remarkable omniscient selfishless of the strong egos of the founding fathers, there was dedication to democracy and republic--especially George Washington, who could have fairly easily become the first leader and first emperor of the new nation.  But he put ego aside for the republic.  Ego is in short supply these days and the invisible hand is much more selfish and greedier.  The two poles of America continue to separate and partisan is strangling truth, doing right and compromise.
+
+thank you, George Washington, for being Father and not Emperor of this great country!
 
 
 PS, Leo is OK.
@@ -40,7 +42,7 @@ Our male kitty, Leo (after Ulysses protagonist hero Leopold Bloom) has been ill 
 
 
 
-There is an awkward demographic squeeze coming to a head:  because of the advancements in health care, our population continues to "boom" which has the potential to bankrupt social systems.  That, of course is the demand side.  The supply side is not enough younger workers to feed the social support sausage machine.  This is further compounded by the increasingly educated child bearing female slice of the population who are either (1) having fewer children or (2) not having any children at all instead of career. This is not meant to blame, but to recognize issues.  There are no easy solutions.  From experience, having and raising children is very difficult and life changing.  But it is wonderfully life changing and very meaningful.  I would definitely do it again--at least if I could know I would have the same exceptional sons.
+There is an awkward demographic squeeze coming to a head:  because of the advancements in health care, our population continues to "boom" which has the potential to bankrupt social systems.  That, of course is the demand side.  The supply side is not enough younger workers to feed the social support sausage machine.  This is further compounded by the increasingly educated child bearing female slice of the population who are either (1) having fewer children or (2) chooding career and not having any children at all. This is not meant to blame, but to recognize issues.  There are no easy solutions.  From experience, having and raising children is very difficult and life changing.  But it is wonderfully life changing and very meaningful.  I would definitely do it again--at least if I could know I would have the same exceptional sons.
  
 ---
 Jun 28: very good Vargoladz a somewhat inexact meandering through a history of society, including slavery, mostly from Greece forward though with some speculation about 'pre-social' cave clans and clusters
@@ -53,7 +55,7 @@ The super wealthy seem to be achieving Versailles-like status. And some of them 
 
 Instead of suicide by money, it is probably more like Russian roulette at extremes.  Why not just near asphyxiation?
 
-Most recently this is evident most obviously by the Titan disaster, which galvanized public attention and multinational state of the art rescue attempts for 5 people versus the almost ‘blink and its forgotten’ refugee tragedy in the Mediterranean where perhaps 600 desperate refugees drowned while a Greek rescue vessel essentially looked the other way and did nothing.  I’m not the first to point of the ethical issues and inconsistencies in this.
+Most recently and obviously this is evident by the Titan disaster, which galvanized public attention and multinational state of the art rescue attempts for 5 people versus the almost ‘blink and its forgotten’ refugee tragedy in the Mediterranean where perhaps 600 desperate refugees drowned while a Greek rescue vessel essentially looked the other way and did nothing.  I’m not the first to point of the ethical issues and inconsistencies in this.
 
 It is fair to point out that the Titan seemed to be a race against time (a surrogate for oxygen) and there were even some outlets who had an oxygen countdown on.  There is some speculation that this was for naught because they knew the sub imploded on Sunday, squeezed in a death grip along the length of the tube, probably shredding the inhabitants who had little time to know what was happening and so soon afterward we’re pressure emulsified without nervous systems to experience the last minutes of life—>death. 
 Though there is some unclear evidence that they knew they were in trouble (perhaps the acrylic cap what beginning to chatter as the pilot warned…though warning that this would give them enough time to get up to safety) because they dropped their sandbags to initiate a rise. 
@@ -80,7 +82,7 @@ There's always more Now later."
 ___
 June 26
 
-I will further most recent topics tomorrow but today, I want to remember my only roommate at Brandeis...with whom I recently reconnected. i found out yesterday that he died unexpectedly almost 2 weeks ago.
+I will further most recent topics tomorrow but today, I want to remember my only roommate at Brandeis...with whom I recently reconnected. i found out yesterday that he died unexpectedly, suddenly almost 2 weeks ago.
 
 ![image](https://github.com/Vargodl/DVwords-WeekenStrung/assets/128755897/f11f8216-cdad-461b-a6e7-e992d04ec013)
 
@@ -166,7 +168,7 @@ title:  He probably had rental properties too…a requiem
 
  I fuckfested the lights out
  
- ….but Tamorro, you got the doubt
+ ….but Tamorro, he got the doubt
  
 
 
@@ -229,7 +231,7 @@ Sooooooo...not too surprisingly, Titan and its inhabitants are dead.  What is a 
 
 Sooooo...5 people are unnecesarily dead and many bits of information and cross-accusations about shoddy work are yet to emerge.  I do feel sorry for those who were involved in preparing the vessel for launch -- god forbid there was some human error (which is probably irrefutable).  in some ways, for several of the untrained 'mission specialists,' this is suicide by hubris or suicide by wealth.
 
-I praise all the many involved in the desperate search and I'm glad for them and the families of those lost, that they were able to rsolve this before there was going to need to be some sort of practical although somewhat arbitrary decision to wind down the search because of futility due to probable asphyxia.  It is interesting to me, however, that the finding was around the time of running out of breathable air.
+I praise all the many involved in the desperate search and I'm glad for them and the families of those lost, that they were able to resolve this before there was going to need to be some sort of practical although somewhat arbitrary decision to wind down the search because of futility due to probable asphyxia.  It is interesting to me, however, that the finding was around the time of running out of breathable air.
 
 I'm not an expert or naval engineer but to me, the most likely scenario is that the vessel imploded on its descent to Titanic--probably not too far above the wreck, and split into two parts/debris fields.  It seems unlikely to me that any significant human remains will be retrieved because, unlike the heavy metal debris, the remains were probably significantly shredded and floated away on the internal streams around the seabed, now to be devoured by deep sea sea worms and other denizens.
 
@@ -240,12 +242,12 @@ Remember this was at a very significant depth with tremendous pressures which cr
 
 I may not be expert here, but I am not ignorant either.  I have had a long history of interest in submarines--which began way before I enlisted in the US Navy--which I joined to be in the nuclear submarine service.  This was initially stimulated by my dad's pleasant reminiscences of his navy time and significantly stimulated when I met my cousin's cousin, who was in the nuclear sub service. based in Holy Loch Scotland.  In my navy career, I spent a week on a nuke 1/4 of a mile under the sea probably going more than 30 knots during my second year summer rotations.
 
-The modern nuclear navy is a tremendous service.  The original WWII era submarines were essentially ships that could go underwater for a relatively short period of time under battery power (kind of like hybrids today--primarily powered by diesel engines, including to generate the electricit to charge the many batteries.  My dad, who was also in the navy in WWII, mentioned that you could always identify the submariners because they always smelled like deisel fuel.). They were even 'ship shaped' (and, of course, shipshape) with V or wedge shaped hulls which are not good designs to minimize the effects of pressure on crushing or implosion.  
+The modern nuclear navy is a tremendous service.  The original WWII era submarines were essentially ships that could go underwater for a relatively short period of time under battery power (kind of like hybrids today--primarily powered by diesel engines, including to generate the electricity to charge the many batteries).  My dad, who was also in the navy in WWII, mentioned that you could always identify the submariners because they always smelled like deisel fuel.). They were even 'ship shaped' (and, of course, shipshape) with V or wedge shaped hulls which are not good designs to minimize the effects of pressure on crushing or implosion.  
 
 Modern subs also have a significant presence in southeastern Connecticut, where I lived when I worked for Pfizer. State of the art submarines are still being built across the Thames River at Electric Boat, in Groton and one of our sub bases are just a bit further upriver.  When I worked at Pfizer, we would regularly see subs going up and down the river going out to or coming in from sea.  Although I wasnt in New London on 9-11, I have been told that multiple subs scrambled out to sea on that day, in case an attack on the base took place.  Further, many retired sub captains live around us.  Had I not left the navy to go to med school, I very well might be one of those retired sub captains today.
 
 
-Nuclear propulsion changed a great deal.  these subs are teardrop or bullet shaped which evenly distribute external pressure making them able to go much deeper.  In fact, modern subs are much more stable at depth than on the surface.  AND, because of the nuclear propulsion, they can stay submerged and under power for significant periods of time.  This is why there are now two types of subs: fast-attack and boomers (essentially mobile nuclear missile platforms wrapped within a submarine).  Fast attack subs go on patrol to fight; boomers stealthily go out to remote undetected locations and wait (usually 4-6 months at a tim) as a deterrent response.  This is the real 'silent service.' 
+Nuclear propulsion changed a great deal.  These subs are teardrop or bullet shaped which evenly distribute external pressure making them able to go much deeper.  In fact, modern subs are much more stable at depth than on the surface.  AND, because of the nuclear propulsion, they can stay submerged and under power for significant periods of time.  This is why there are now two types of subs: fast-attack and boomers (essentially mobile nuclear missile platforms wrapped within a submarine).  Fast attack subs go on patrol to fight; boomers stealthily go out to remote undetected locations and wait (usually 4-6 months at a time) as a deterrent response.  This is the real 'silent service.' 
 
 
 For the submariner, there are two types of ships: submarines and targets.

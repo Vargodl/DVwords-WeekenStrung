@@ -838,7 +838,7 @@ May 9
 
 Concerning the Chuck coronation, he was anointed in private with holy oils by the Arch of Can’tbury (The Cadbury).  This was a long histories event with strong sacramental  and other religious references. I’m not sure why that is the case, given the general deterioration in religious attendance, but the “Divine Right of Kings” (whatever that means) is invoked. 
 
-The oil has rich symbolism, from the Mount of Olives and spiced (like what his mom had 70years ago) although vegan
+The oil has rich symbolism, from the Mount of Olives and spiced (like what his mom had 70 years ago) although vegan
 
 …just one more thing:
 
@@ -1216,8 +1216,7 @@ An author I’ve been reading revealed that his date of birth is the same of min
 
 I like to read interesting turns of phrases including seeming contradictions like “in praise of blame” and “ to live in a place without boundlessness.”  I like the end of statements to surprise and jar me by their non sequitur unexpectedness, out of place-ness, and counter-intuitivity… though not like a slap in the face or a plunge in an unexpectedly ice cold lake but more like my name whispered breathily and barely heard when no one is around or a subtle slight breath gust across but behind your ear in 3/4 pose. 
 
-“What doesn’t kill you makes you stronger” Chris Stafford et al
-…and, (to “A+”) it:
+
 “What doesn’t kill you makes you stranger” 
 DV
 
